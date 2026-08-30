@@ -8352,3 +8352,1158 @@ E então, batidas soaram à porta.
 
 — Boa noite, Arthur. — veio a voz da diretora Cynthia Goodsky do outro lado. — Posso entrar?
 
+## **Capítulo 22 — Os Escudos, as Espadas e a Casa Ravenpor**
+
+A batida na porta ecoou uma segunda vez, educada e paciente, do jeito de quem não tinha pressa nenhuma porque sabia que seria atendida de qualquer forma.
+
+No canto do quarto, o painel discreto que a Baluarte havia instalado atrás de uma prateleira falsa piscou uma última vez antes de apagar. *Assinatura de mana confirmada. Cynthia Goodsky. Sozinha. Sem hostilidade detectada.* Arthur leu o alerta com o canto do olho, e no ombro dele Sylvie ergueu a cabecinha, atenta.
+
+*É ela mesma,* transmitiu Arthur pelo vínculo. *Fica quieta.*
+
+*Kuah,* respondeu Sylvie, e o pensamento que veio junto foi menos uma palavra e mais uma sensação — curiosidade morna, um bocejo, e a decisão preguiçosa de continuar deitada onde estava.
+
+---
+
+### **A Diretora no Recinto**
+
+Elijah chegou à porta antes de Arthur, ainda com a toalha no pescoço e o cabelo molhado do banho, e abriu.
+
+E congelou.
+
+Do outro lado estava uma mulher de cabelos claros presos com uma severidade elegante, mantos que custavam mais que a casa em que Elijah havia crescido, e um olhar que tinha aquela qualidade específica de quem já viu tantas gerações passarem que nenhuma consegue mais surpreendê-la.
+
+— Diretora Goodsky?\! — Elijah quase se atropelou nas próprias palavras, endireitando a postura de um jeito tão brusco que a toalha caiu no chão. — É... é uma honra conhecê-la pessoalmente\!
+
+— Elijah, não é? — Cynthia Goodsky inclinou levemente a cabeça, e o sorriso dela foi genuíno. — Ouvi grandes coisas do Vincent sobre você.
+
+Elijah abriu a boca. Fechou. Abriu de novo.
+
+*O Vincent,* pensou ele, atordoado. *O Vincent Helstea. Falou de mim. Para a diretora. Da Academia Xyrus.*
+
+— Por favor, entre, diretora Goodsky — disse Arthur, de dentro do quarto, sem se levantar da cadeira.
+
+Cynthia atravessou a soleira com a naturalidade de quem entrava na própria casa, e os olhos dela percorreram o ambiente em três segundos exatos. Não olharam para as camas, nem para as janelas. Olharam para o painel apagado atrás da prateleira falsa. Para a porta do armário, que era grossa demais para um armário. Para a mesa onde três telas pretas refletiam a luz do corredor.
+
+Ela não comentou nenhuma das três coisas. Apenas se sentou.
+
+— Vou buscar uma bebida para a gente lá embaixo — disse Elijah, recuperando o pouco de compostura que ainda lhe restava e recolhendo a toalha do chão.
+
+— Ah, obrigada, querido — disse Cynthia.
+
+A porta se fechou atrás dele, e o barulho dos passos apressados sumiu escada abaixo com uma velocidade que dizia muito sobre o quanto Elijah precisava de trinta segundos sozinho para processar a última meia hora da vida dele.
+
+Arthur puxou a cadeira em frente à diretora e se sentou. Sylvie desceu do ombro dele, deu duas voltas no colo, e se enrolou ali como se aquilo fosse um assunto que não lhe dizia respeito.
+
+---
+
+### **Dois Velhos Conhecidos**
+
+Por um momento nenhum dos dois falou. O silêncio entre eles não era desconfortável — era o tipo de silêncio que só existe entre pessoas que já tiveram muitas conversas difíceis e sobreviveram a todas.
+
+— Te falei para me chamar de Cynthia — disse ela por fim.
+
+— E eu te falei que não iria.
+
+Ela riu baixinho, e havia algo quase carinhoso naquilo.
+
+— Teimoso igual ao Virion. — Ela apoiou o queixo na mão. — Ele também nunca me chamou pelo primeiro nome no primeiro século de amizade.
+
+— Talvez ele tivesse os motivos dele.
+
+— Ah, com certeza tinha. — Cynthia se recostou, e então os olhos dela mudaram. O foco se estreitou, ficou clínico, atravessou o garoto sentado à sua frente como se procurasse alguma coisa por baixo da pele. — Mas parece que o seu laço não é o único que mudou.
+
+Arthur não se moveu.
+
+— Seu núcleo de mana está diferente.
+
+Não era uma pergunta. Era uma constatação, feita por alguém que passara uma vida inteira medindo o potencial de crianças com um olhar e raramente errando por muito.
+
+Ela se inclinou um pouco para a frente.
+
+— Não estou falando de crescimento, Arthur. Crescimento eu reconheço. Uma criança que treina demais, que força os limites, que queima anos de progresso em meses — isso eu vejo todo ano, e sei exatamente com o que se parece. — A voz dela baixou. — Não é isso. O que você tem aí dentro não *cresceu*. Está numa categoria diferente. Está numa categoria que eu não deveria conseguir sentir num garoto de doze anos parado na minha frente, tomando chá, como se fosse a coisa mais normal do mundo.
+
+Arthur segurou o olhar dela por um instante longo. E então, com a simplicidade de quem comenta o clima:
+
+— É que todo mundo das equipes Alfa a Sierra conseguiu chegar no Éter antes de vir para a escola.
+
+O silêncio que se seguiu foi de uma qualidade completamente diferente do anterior.
+
+Cynthia Goodsky ficou parada. Absolutamente parada. E, pela primeira vez em muitos anos, a expressão dela não estava sob controle total.
+
+— Todo mundo — repetiu ela, devagar.
+
+— Todo mundo.
+
+— Das dezoito equipes.
+
+— Mais os Autobots e os BT — completou Arthur. — Eles andam junto. Sempre andaram. Onde uma equipe vai, vão todas — tirando os veículos de transporte, que normalmente ficam guardados na *Infinity Dreadnought* até a gente precisar.
+
+Ela levou dois dedos à têmpora e respirou fundo, uma única vez.
+
+— Arthur, você tem noção de que existem, em todo o continente de Dicathen, exatamente zero indivíduos registrados que alcançaram o que você está descrevendo? — disse ela. — Zero. Não é um número pequeno. É zero. As Seis Lanças que anunciamos há poucos dias, os campeões dos três reinos, os mais poderosos que essas três raças conseguiram produzir em toda a história registrada — nenhum deles está onde você acabou de dizer que *todo mundo* da sua organização está.
+
+— Eu sei.
+
+— E você me diz isso sentado numa cadeira de alojamento estudantil.
+
+— Você perguntou.
+
+Cynthia o encarou por mais um momento. E então, para surpresa de ninguém que a conhecesse de verdade, ela riu — uma risada curta, seca, incrédula, a risada de uma mulher velha demais para se escandalizar e curiosa demais para se assustar.
+
+— Sabe qual é a parte mais perturbadora? — disse ela. — Não é o que você contou. É a naturalidade com que contou.
+
+— Além disso — continuou Arthur, ignorando completamente a observação —, a gente tem que limpar o lixo problemático dessa escola antes que ele invente de criar raízes.
+
+E ali, o riso de Cynthia morreu numa expressão bem mais complicada.
+
+— Kkkk — ela deixou escapar mesmo assim, balançando a cabeça. — Chamar o irmão de uma das Lanças, e de uma das famílias militares mais influentes do reino, de "lixo problemático"... — Ela o olhou de lado. — Fico preocupada com quem vão ser seus verdadeiros inimigos no futuro, Arthur Leywin.
+
+— Ele nunca vai saber, porque a gente apagou a memória dele. — Arthur deu de ombros. — E, além disso, que coisa sinistra de se falar para um pré-adolescente que acabou de começar a vida escolar.
+
+Cynthia abriu a boca para responder — e parou no meio.
+
+— Está certo, me perdoe. — Ela ergueu as mãos numa rendição bem-humorada. — Foi realmente uma coisa sinistra de se dizer a um...
+
+Ela parou de novo.
+
+Dessa vez, a pausa durou mais.
+
+— Espera. — Os olhos dela se estreitaram. — Como vocês apagaram a memória dele?
+
+Sylvie, no colo de Arthur, abriu um olho.
+
+*Ela é rápida,* comentou a dragoazinha pelo vínculo.
+
+*Ela sempre foi,* respondeu Arthur.
+
+E em algum lugar acima da Academia Xyrus, num convés silencioso da *Infinity Dreadnought*, um homem de sombras que nunca precisava estar presente para trabalhar sentiu a menção do próprio ofício atravessar o ar como uma corrente fria — e não fez absolutamente nada, porque Sung Jin Woo raramente precisava fazer alguma coisa para que as pessoas parassem de fazer as perguntas erradas.
+
+Arthur apenas sustentou o olhar da diretora.
+
+— Cynthia — disse ele, e foi a única vez na conversa inteira que ele a chamou pelo primeiro nome. — Tem coisas nesse mundo que são melhores ficarem sem respostas.
+
+Ela o encarou.
+
+Ele encarou de volta.
+
+E, então, Cynthia Goodsky jogou a cabeça para trás e riu.
+
+— Kkkkk. Está certo. — Ela enxugou o canto do olho com as costas do dedo. — Está certo. Que os deuses me ajudem, está certo.
+
+---
+
+### **O Pedido de Arthur**
+
+— Mas, sobre a vida escolar — disse Arthur, mudando de assunto com a delicadeza de um aríete —, preciso da sua ajuda com outra coisa.
+
+— Hmm? — Cynthia ergueu uma sobrancelha, e havia algo divertido no jeito como ela se acomodou melhor na cadeira. — E o que seria?
+
+— Quero ter aulas teóricas do nível mais alto de mana. — Arthur não hesitou. — Especialmente sobre divergentes.
+
+Cynthia inclinou a cabeça.
+
+— Isso não seria difícil de fazer — disse ela. — Mas pensei que um dos principais motivos para você entrar nessa academia era justamente se enquadrar na idade da turma. Conviver com crianças da sua idade. Ter, por uma vez na vida, alguma coisa parecida com uma infância normal.
+
+— Eu teria essas aulas além de assistir as habituais com os estudantes da minha idade — respondeu Arthur. — Não estou pedindo para pular nada. Estou pedindo para somar. — Ele girou o anel dimensional no dedo, um gesto pequeno, quase inconsciente. — Só estou um pouco impaciente para aprender mais sobre manipulação de mana divergente, já que meu crescimento nessa área estagnou recentemente.
+
+*Estagnou,* pensou Cynthia. *Ele chegou onde ninguém neste continente chegou, e a palavra que ele escolheu foi "estagnou".*
+
+— Muito bem — disse ela. — Vou fazer acontecer.
+
+Arthur assentiu.
+
+— Posso até te dar um passe — continuou Cynthia, casualmente demais — para observar as lutas de treino dos magos de elite das turmas avançadas.
+
+Arthur parou de girar o anel.
+
+E olhou para ela.
+
+— Uau — disse ele. — Ok, então qual é o truque?
+
+A porta se escancarou.
+
+— Arthur Leywin\! — Elijah entrou no quarto com duas garrafas escuras numa mão, três copos precariamente equilibrados na outra, e uma expressão de escândalo puro no rosto. — Você está sendo rude com a diretora\! Como pode confundir a bondade dela com segundas intenções?\!
+
+— Não, não — disse Cynthia, servindo-se de um copo com toda a tranquilidade do mundo. — Eu tenho segundas intenções.
+
+Elijah ficou parado no meio do quarto.
+
+— Ah... — disse ele.
+
+---
+
+### **As Garrafas do Deadpool**
+
+Arthur olhou para as garrafas na mão do amigo. Depois para o rótulo. Depois para o líquido âmbar-escuro dentro delas, que tinha uma viscosidade que nenhum suco de fruta jamais teve na história da agricultura.
+
+— Elijah — disse ele, muito devagar. — Quem te deu essas garrafas?
+
+— Foi o Deadpool. — Elijah encheu um copo, alheio. — Por quê?
+
+Arthur fechou os olhos por dois segundos.
+
+— Nada.
+
+*Ótimo momento para ficar bêbado,* pensou ele.
+
+Cynthia Goodsky, que já havia levado o copo aos lábios, tomou um gole. Fez uma pausa. Olhou para o copo. Tomou um segundo gole, maior.
+
+— Isso é excelente — declarou ela.
+
+— Não é? — Elijah se sentou na beirada da cama, satisfeito consigo mesmo. — Ele disse que era uma receita de família.
+
+— O Deadpool não tem família — disse Arthur.
+
+— Ele disse que era da família dele.
+
+— Ele diz muitas coisas.
+
+---
+
+### **Os Escudos e as Espadas**
+
+Cynthia pousou o copo na mesa e cruzou os dedos sobre o joelho, e o clima da sala mudou. Foi sutil, mas foi total — a mulher que estava tomando bebida contrabandeada num alojamento estudantil desapareceu, e no lugar dela sentou-se a diretora da mais prestigiosa academia de magia do continente.
+
+— Você sabe do conselho estudantil, certo?
+
+— Já tive o prazer — disse Arthur, num tom que fez Elijah engasgar no próprio copo.
+
+— Eles são o que deveriam ser chamados de os *escudos* dessa escola — continuou Cynthia. — Eles protegem. Eles medeiam. Eles fazem discursos bonitos sobre unidade racial e conseguem, às vezes, que as pessoas acreditem neles. — Ela girou o copo devagar. — Esse ano decidi criar as *espadas*.
+
+Elijah parou de beber.
+
+— Quero que você se junte ao Comitê Disciplinar — disse Cynthia.
+
+Houve exatamente um segundo de silêncio absoluto.
+
+— O quê? — disse Arthur.
+
+— Como viu com os próprios olhos — prosseguiu ela, imperturbável —, uma academia cheia de magos na flor da idade causou o pensamento de que eles valem o peso deles em ouro. E isso leva, com uma frequência que eu gostaria muito de poder negar, a problemas.
+
+Arthur se levantou.
+
+Atravessou o quarto sem pressa nenhuma, abriu a porta do armário — a porta grossa demais para ser de armário — e ficou ali parado, de costas para ela, olhando para dentro. A luz do interior era fria e azulada, e recortava a silhueta dele contra fileiras de coisas que não tinham absolutamente nada a ver com a vida escolar de um garoto de doze anos.
+
+— Vai saber — disse ele.
+
+Cynthia não conseguiu ver o conteúdo do armário do ângulo em que estava. Ela também não tentou.
+
+— O Comitê Disciplinar será responsável por manter a paz e aplicar as regras no nosso pequeno campus — disse ela.
+
+Arthur fechou o armário, voltou, e se sentou na cadeira — dessa vez de lado, um braço jogado sobre o encosto.
+
+— Hã? — disse ele. — Isso é algo de que um calouro deveria fazer parte? Eu não sou nem um mago de batalha.
+
+— Minha escola, minhas regras.
+
+— Deixa pra lá. — Arthur deu de ombros. — Não preciso das aulas teóricas. Vou aprender sozinho com os livros da biblioteca.
+
+E foi aí que Cynthia Goodsky sorriu.
+
+Foi um sorriso pequeno, contido e absolutamente devastador — o sorriso de alguém que preparou o tabuleiro inteiro três semanas antes e vinha esperando com paciência infinita por exatamente aquela frase.
+
+— Aqueles livros não são acessíveis para calouros — disse ela. — E, mesmo se você fosse um veterano, precisaria provar ser um divergente. — Ela tomou mais um gole, e por cima da borda do copo os olhos dela brilharam. — E acho que não é algo que você queira fazer agora. Estou certa?
+
+Arthur ficou em silêncio.
+
+Do outro lado do quarto, Elijah olhava de um para o outro com a garrafa esquecida na mão.
+
+*Por que esses dois parecem velhos amigos ao invés de diretora e estudante?* pensou ele. *Ela acabou de encurralar ele. E ele não parece nem um pouco surpreso de ter sido encurralado. É como assistir a duas pessoas jogando xadrez numa partida que começou antes de eu entrar na sala.*
+
+---
+
+### **A Negociação**
+
+— Além disso — continuou Cynthia, e agora ela estava claramente se divertindo —, os membros do Comitê Disciplinar são escolhidos pela força. Então você terá rivais para lutar e aprender regularmente. — Ela pousou o copo. — Vou até fornecer acesso a um local de treinamento privado.
+
+Arthur ergueu os olhos.
+
+— Você disse que os membros são escolhidos pela força — disse ele, devagar. — Isso quer dizer que...
+
+— Mesmo que a casa Wykes tenha insistido em ter uma vaga para o Lucas — disse Cynthia, sem rodeios —, eu avisei que ele mexeu com alguém da Baluarte, e que o que eu poderia fazer era deixá-lo entrar como aluno. E apenas isso.
+
+Elijah, no fundo do quarto, ficou muito quieto.
+
+— E, também — continuou ela —, mesmo que ele não tivesse feito nada, eu ainda iria rejeitar todos os pedidos. Na esperança de que você aceitasse.
+
+Arthur a encarou por um momento longo.
+
+— Você realmente preparou tudo, não é...?
+
+— É contra você que estou indo, no fim das contas. — Cynthia deu de ombros com uma modéstia absolutamente falsa. — Seria uma falta de respeito preparar menos.
+
+Arthur soltou o ar pelo nariz. Não era bem uma risada. Era o som de alguém reconhecendo uma jogada bem-feita.
+
+— Tudo bem — disse ele. — Mas é melhor que esse local de treinamento seja um desses ricos em mana. E que a Baluarte possa acessar o local onde ele fica. — Ele ergueu um dedo. — E, além disso, eu quero poder aplicar a ordem dentro da academia. De verdade. Você disse que estão com problemas — vamos ajudar.
+
+Cynthia não hesitou nem um instante.
+
+— Já está feito.
+
+Arthur piscou.
+
+— Você concordou rápido demais.
+
+— Eu concordei com tudo isso há três semanas, querido — disse ela, servindo-se de mais um dedo da bebida do Deadpool. — Só estava esperando você pedir, para que fosse ideia sua.
+
+---
+
+### **O Uniforme e um Último Pedido**
+
+— Já tomei a liberdade de mandar um uniforme do Comitê Disciplinar ser feito para você — continuou Cynthia, levantando-se e alisando os mantos. — Se bem que duvido que você vá usá-lo, já que tem trajes que nem eu consigo sentir a presença.
+
+Arthur não confirmou nem negou.
+
+Cynthia caminhou até a porta. E ali, com a mão na maçaneta, ela parou.
+
+— Ah. E, Arthur...
+
+Ele ergueu os olhos.
+
+— Por favor, faça as pazes com a presidente do conselho estudantil. Com a Tessia. — A voz dela suavizou de um jeito que não combinava nada com a mulher que acabara de encurralá-lo numa negociação. — Logo. Não é legal ficar bravinho com sua... amiga de infância.
+
+E ela saiu, fechando a porta atrás de si com um clique educado.
+
+Houve exatamente meio segundo de silêncio.
+
+Então:
+
+— TESSIA ERALITH É SUA AMIGA DE INFÂNCIA?\!
+
+O grito de Elijah foi alto o suficiente para acordar dois andares do alojamento. A garrafa escorregou da mão dele, e só não se espatifou no chão porque Arthur a pegou no ar com um pulso de vento tão preguiçoso que mal se poderia chamar de magia.
+
+— Vai dormir, Elijah.
+
+— Vai dormir?\! — Elijah se levantou de um pulo. — Você não pode só...
+
+Sylvie, no colo de Arthur, soltou um som que era inconfundivelmente uma risada.
+
+---
+
+### **Amiga de Infância**
+
+No dia seguinte, ao meio-dia, Arthur, Elijah e Sylvie desceram para o refeitório da academia — um salão enorme de pé-direito alto, com janelas que davam para o vazio azul além da borda da cidade flutuante, e um zumbido constante de centenas de vozes adolescentes falando todas ao mesmo tempo.
+
+— Desculpa — disse Arthur, enquanto atravessavam o corredor. — Eu ia te contar em algum momento. Acabou que as coisas terminaram desse jeito.
+
+— Tudo bem... — Elijah enfiou as mãos nos bolsos, e por um momento a energia caótica dele deu lugar a alguma coisa mais quieta. — Eu também tenho o que você pode chamar de "amiga de infância". O nome dela era Helgarth.
+
+Arthur o olhou de lado. Reparou no tempo verbal. Não comentou.
+
+— Entendi — disse ele. — Ela parece uma garotinha adorável.
+
+Elijah abriu um sorriso torto, e a energia voltou de uma vez, do jeito que sempre voltava.
+
+— Lilia. A princesa Kathyln. E agora até a princesa Tessia. — Ele contou nos dedos, o horror crescendo a cada nome. — Quem é o próximo? Vai começar a flertar com os deuses?
+
+— Ei\! — Arthur virou a cabeça, genuinamente indignado. — Eu nunca flertei com ninguém\!
+
+— Pior ainda\! — Elijah recuou um passo, apontando para ele. — Você expele feromônios atrativos?\!
+
+— Isso nem é uma coisa que existe.
+
+— É sim. Eu li num livro.
+
+— Você não lê livros.
+
+— Eu ouvi falar de um livro.
+
+Eles chegaram às bandejas. Elijah pegou uma e começou a empilhar comida com o entusiasmo de alguém que passara a manhã inteira em aulas teóricas de aplicação de mana e a considerava uma experiência traumática.
+
+— Cara — disse ele, colocando uma terceira porção de carne no prato. — Eu queria ter essa sorte que você tem.
+
+E foi mais ou menos nesse momento que Arthur notou que o zumbido de vozes ao redor tinha mudado de intensidade.
+
+Ele ergueu os olhos.
+
+O refeitório inteiro estava olhando para ele.
+
+Não todos ao mesmo tempo, e não abertamente — era pior que isso. Era aquele tipo de atenção difusa e furtiva de duzentas pessoas que fingem estar fazendo outra coisa: cabeças que viravam meio grau, conversas que baixavam de volume quando ele passava perto, garfos que paravam no meio do caminho, cotovelos que cutucavam vizinhos.
+
+*O calouro ruivo.*
+
+*É ele. É o que arremessou o vice-presidente.*
+
+*Aquele é o da Baluarte? Aquele garoto?*
+
+*Ele é de quatro elementos. Quatro.*
+
+*A presidente falou com ele pelo primeiro nome.*
+
+— Parece que os rumores sobre você já se espalharam — comentou Elijah, sem tirar os olhos do próprio prato.
+
+— Ser popular é difícil — disse Arthur, pegando um pão.
+
+— Você é esquisito.
+
+Sylvie, no ombro de Arthur, ergueu a cabeça e encarou o refeitório inteiro com um olhar de puro desprezo reptiliano. Três mesas inteiras voltaram a olhar para os próprios pratos ao mesmo tempo.
+
+---
+
+### **A Casa Ravenpor**
+
+Os dois se sentaram numa mesa perto da janela. Arthur havia acabado de servir um copo d'água quando uma sombra caiu sobre a mesa.
+
+O garoto que estava de pé ali era alto para a idade, bem-vestido de um jeito caro e deliberado, e trazia atrás de si dois outros estudantes que tinham a postura específica de quem existe para concordar. Ele olhou para Elijah com o mesmo interesse que se dá a uma mancha no tapete, e depois se voltou para Arthur com um sorriso que provavelmente ensaiara no espelho.
+
+— Notei que você está perdendo seu tempo com alguém inferior — disse ele. — Meu nome é Charles Ravenpor II, da famosa casa Ravenpor. Com certeza já ouviu falar, certo?
+
+Arthur ergueu o copo.
+
+— Bom, estou me sentindo meio generoso hoje — continuou Charles, abrindo os braços com magnanimidade. — Vou te permitir se juntar ao meu grupo. Posso te garantir que não vai se arrepender.
+
+Elijah largou o garfo.
+
+— Hã? — disse ele, franzindo a testa com uma perplexidade absolutamente sincera. — Casa Revenporra?
+
+Arthur cuspiu a água que estava tomando.
+
+Foi um jato limpo, potente e de trajetória impecável, e atravessou o metro e meio que o separava de Charles Ravenpor II com uma precisão que qualquer instrutor de balística da Baluarte teria elogiado.
+
+— Tenho certeza — disse Arthur, entre uma tosse e outra, tentando desesperadamente recuperar o ar — que não dariam o nome de uma família... como ejaculação de uma ave.
+
+— Ah, desculpa — disse Elijah, sério como um juiz. — Devo ter escutado errado, então.
+
+O silêncio ao redor da mesa foi absoluto. Uma garota três mesas adiante deixou cair um talher.
+
+Charles Ravenpor II ficou branco. Depois vermelho. Depois de uma cor que não tinha nome registrado.
+
+— Chega\! — explodiu ele, limpando o rosto com a manga. — Ousa zombar da nobreza?\! Eu saí do meu caminho para te convidar para o meu grupo, para que você não precisasse se rebaixar ao nível desse lixo erudito que gosta de causar problemas — e você cospe na minha cara?\!
+
+— Por que eu iria acompanhar alguém que subestima o meu melhor amigo na cara? — Elijah se levantou, e a cadeira arrastou no chão com um guincho. — Além disso, somos todos magos nessa academia\! Então abaixa esse topete\!
+
+Um dos dois estudantes atrás de Charles bufou.
+
+— Disse que somos todos magos? — zombou ele. — Você deve ter crescido em uma caverna ou algo assim, para não saber a diferença entre nós e eles.
+
+— Eu morei em uma caverna\! — berrou Elijah, com uma indignação tão genuína e tão fora do esperado que o babaca recuou meio passo. — E até o conselho estudantil está falando que a gente não deveria tratar uns aos outros com diferenças\!
+
+— Claro que falariam isso — Charles recuperou o fôlego e o desprezo ao mesmo tempo. — É tudo política e aparência. Mas essa não é a realidade. — Ele estalou os dedos, e uma pequena espiral de mana começou a se formar na palma da mão. — Parece que o único jeito de você perceber a diferença é vendo com os próprios olhos\!
+
+E foi então que Arthur se moveu.
+
+Ninguém viu.
+
+Depois, quando o refeitório inteiro discutisse aquele momento pelo resto do semestre, as versões nunca bateriam: uns jurariam que ele tinha se levantado, outros que nunca chegou a sair da cadeira, outros ainda que o braço dele simplesmente *não saiu do lugar* — que a mão estava apoiada na mesa antes e continuou apoiada na mesa depois, e que no meio disso a cabeça de Charles Ravenpor II tinha girado quarenta graus para a esquerda por vontade própria.
+
+Charles cambaleou dois passos para trás. A espiral de mana na palma dele se desfez em fumaça.
+
+*O que me acertou?* pensou ele, com a boca cheia de sangue e a visão nadando. *Eu... eu nem consegui ver.*
+
+E foi quando as vinhas surgiram.
+
+Elas brotaram do chão de pedra polida como se aquilo não fosse pedra, subiram pelas pernas dele, prenderam os braços contra o corpo e o ergueram meio palmo acima do piso em menos de um segundo. Não havia círculo de invocação visível. Não havia incantação. Não havia sequer o brilho de acúmulo de mana que precede qualquer feitiço decente.
+
+Simplesmente aconteceu.
+
+— O-o que é isso?\! — Charles se debateu, o pânico atropelando a arrogância. — Me solta\!
+
+*Essas vinhas...* — a mente dele corria, e não gostava de nenhuma das conclusões a que chegava. *Tem um estudante capaz de usar magia divergente poderosa dessas? Ou é um professor...?*
+
+— Ei\! — gritou ele, mais alto. — Me solta\!
+
+Arthur se levantou devagar e olhou por cima do ombro, na direção de onde as vinhas tinham vindo.
+
+E, do outro lado do refeitório, entre as colunas, ele viu uma mecha de cabelo verde-claro desaparecer atrás de um pilar.
+
+*Agora,* pensou Arthur, voltando a atenção para o garoto suspenso e xingando no ar, *o que faço com ele? Usar magia faria o Elijah e eu termos problemas.*
+
+Ele olhou para a própria mão.
+
+*Mas não isso.*
+
+---
+
+### **A Lição do Charles**
+
+Arthur levou dois dedos ao bolso interno do casaco e apertou um botão.
+
+Não houve som. Não houve luz.
+
+Mas, três segundos depois, em cada corredor, em cada pátio, em cada saguão, em cada quadra de treino e em cada jardim da Academia Xyrus, painéis finos e escuros se materializaram no ar — telões da Baluarte, os mesmos que haviam transmitido o anúncio das três coroas para o continente inteiro, desdobrando-se em silêncio a três metros do chão como se o próprio ar tivesse decidido virar vidro.
+
+E todos eles, todos, sem exceção, mostravam a mesma imagem: o refeitório central. E, no meio dele, Charles Ravenpor II, suspenso por vinhas, com o rosto inchado e a boca ensanguentada.
+
+O barulho que percorreu o campus foi de milhares de pessoas parando de fazer o que estavam fazendo ao mesmo tempo.
+
+— Acha que vai se safar dessa?\! — cuspiu Charles, ainda sem entender o tamanho do buraco em que estava. — Espere até eu contar para a minha m—
+
+— Moleques de casas nobres como vocês — disse Arthur, e a voz dele não estava alta, mas os telões a carregaram para cada canto da academia com uma clareza cirúrgica — adoram bater no peito e se gabar sobre o quanto são ricos e poderosos.
+
+Ele deu um passo à frente.
+
+— Tudo o que estão fazendo é envergonhar suas famílias fazendo isso.
+
+— Hah\! — Charles ergueu o queixo, e ali, naquele momento exato, ele tomou a pior decisão da vida escolar dele. — Não tem nada de vergonhoso em colocar um lixo como você no devido lugar\! Meus pais ficariam orgulhosos\!
+
+Elijah, dois passos atrás, apertou os olhos.
+
+*O que eu faço?* pensou ele, com a certeza fria de quem já vira aquilo antes. *Parece que o Arthur está prestes a apelar. Devo entrar no meio?*
+
+*Não,* concluiu ele meio segundo depois. *Não, eu definitivamente não devo entrar no meio.*
+
+— É mesmo? — Arthur inclinou a cabeça. — Então me conceda a honra de te ensinar uma lição importante.
+
+— Estou desarmado e amarrado\! — riu Charles, e a risada saiu trêmula. — O que pode fazer com tanta gente olhando? Hein?
+
+— Algo ainda mais cruel para moleques como vocês do que ferimentos físicos...
+
+— Acha que um zé-ninguém como você pode escapar usando magia em—
+
+Arthur abaixou as calças dele.
+
+Não houve magia. Não houve técnica. Não houve absolutamente nada além de um garoto de doze anos dando dois passos à frente, agarrando o cós e puxando para baixo com uma eficiência prática e completamente desprovida de cerimônia.
+
+E o campus inteiro viu.
+
+Cada telão. Cada corredor. Cada pátio. Cada jardim. Três mil estudantes da mais prestigiosa academia de magia do continente de Dicathen, em transmissão simultânea, em altíssima definição.
+
+O som que veio depois foi de uma academia inteira caindo na gargalhada ao mesmo tempo, e ele foi tão alto que assustou os pássaros nos telhados da cidade flutuante.
+
+— Calem a boca\! — berrou Charles, se contorcendo nas vinhas, incapaz de alcançar as próprias calças. — Todo mundo calado\! N-não olhem\!
+
+Arthur já estava andando.
+
+— Volto já — disse ele a Elijah.
+
+— Hã? — Elijah, que tinha lágrimas de riso escorrendo pelo rosto e estava apoiado na mesa para não cair, acenou vagamente. — Ah, sim. Claro...
+
+---
+
+### **O Banco do Pátio**
+
+Do lado de fora do refeitório, num pátio lateral onde as árvores ornamentais filtravam o sol da tarde em manchas douradas, Tessia Eralith estava sentada sozinha num banco de pedra.
+
+Ela ouviu os passos, mas não levantou a cabeça.
+
+Arthur se sentou ao lado dela. Não muito perto. Não muito longe. Sylvie desceu do ombro dele e se acomodou entre os dois, como uma pequena fronteira diplomática de escamas.
+
+Por um tempo, nenhum dos dois falou.
+
+— Obrigado pela ajuda naquela hora — disse Arthur.
+
+— Você sabe que não precisava — respondeu Tessia, ainda olhando para as próprias mãos. — Da ajuda, digo. Você teria resolvido sozinho.
+
+— Mesmo assim... — Arthur se recostou no banco. — Você salvou eu e meu amigo de termos problemas pela segunda vez hoje.
+
+Ela finalmente virou o rosto para ele.
+
+E os dois falaram ao mesmo tempo.
+
+— Me descul—
+
+— Me desculpa, Arth—
+
+---
+
+### **A Testada**
+
+O som foi seco e horrível.
+
+Duas testas, na mesma trajetória, com a mesma pressa, com exatamente a mesma vontade desesperada de dizer aquilo primeiro — e nenhum dos dois com reflexo suficiente para parar, porque nenhum dos dois estava esperando que o outro fosse fazer a mesma coisa.
+
+— AI\!\!\! — gritou Tessia, as duas mãos voando para a testa.
+
+Arthur tombou para trás no banco, segurando o queixo.
+
+— Acho que meu queixo quebrou — anunciou ele, com uma serenidade absurda.
+
+Sylvie, entre os dois, olhou de um para o outro com uma expressão de vergonha alheia tão pura que era quase humana.
+
+*Vocês dois são inacreditáveis,* transmitiu ela.
+
+*Cala a boca, Sylv.*
+
+Arthur se endireitou, ainda massageando a mandíbula, e olhou para Tessia — e parou.
+
+— Está chorando?
+
+— Cala a boca... — A voz dela saiu abafada por trás das mãos. — É porque está doendo.
+
+— Doeu tanto assim?
+
+— Sim\! — Ela tirou as mãos do rosto e apontou para a testa, onde uma marca vermelha e absolutamente indigna já começava a inchar. — Olha como está inchado\!
+
+Arthur olhou. Estava, de fato, inchado.
+
+Ele abriu a boca para dizer alguma coisa espirituosa — e não chegou a dizer, porque Tessia, com a naturalidade de quem tinha oito anos de amizade acumulada e exatamente zero paciência para continuar fingindo que não estava exausta, simplesmente deitou a cabeça no ombro dele.
+
+Arthur ficou muito quieto.
+
+O pátio ficou muito quieto.
+
+Em algum lugar distante, dentro do refeitório, três mil pessoas ainda riam de Charles Ravenpor II, e o som chegava ali abafado, irreal, como se pertencesse a outro mundo.
+
+— Pensei que me odiava... — disse Tessia, baixinho.
+
+Arthur olhou para o céu falso e azul da cidade flutuante.
+
+— Mesmo que eu fique bravo com você às vezes — disse ele —, eu nunca te odiaria, Tess.
+
+Ela não respondeu de imediato.
+
+— Eu... não quero isso também.
+
+— Hm?
+
+— Não quero que fique bravo comigo.
+
+Arthur pensou por um momento. E, quando falou, foi sem nenhuma das defesas que costumava usar.
+
+— Bem, dessa vez eu estava errado — disse ele. — Eu sabia que estava preocupada comigo, e não devia ter sido tão duro com você.
+
+— Não. — Tessia balançou a cabeça, ainda apoiada no ombro dele. — Eu estava errada também. Não devia ter te chamado a atenção na frente de todo mundo.
+
+Ela soltou um suspiro longo, e o ombro dele sentiu o peso daquilo.
+
+— Acho que ainda estou tentando me acostumar com toda essa coisa de presidente do conselho estudantil... — Ela fechou os olhos. — Todo mundo olha para mim esperando que eu seja justa e imparcial e correta o tempo todo. E eu tenho quatorze anos, Art.
+
+— Você é boa nisso.
+
+— Eu sou péssima nisso.
+
+— Você é boa nisso — repetiu ele. — Só está cansada. São coisas diferentes.
+
+E foi exatamente esse o quadro que Elijah Knight encontrou quando saiu do refeitório procurando o amigo.
+
+— O Ravenporra conseguiu se soltar das vinhas e subir as calças de volta\! — anunciou ele, alto, gesticulando com as duas mãos ao atravessar a porta. — Haha, cara, você devia ter visto a cara del—
+
+Ele parou.
+
+Ele viu.
+
+Arthur Leywin, sentado num banco de pedra, com a presidente do conselho estudantil da Academia Xyrus — a Tessia Eralith, princesa de Elenoir, discípula da diretora Goodsky — com a cabeça apoiada no ombro dele.
+
+E Arthur, sentindo o olhar do amigo cravado nas costas, ergueu os olhos e o encarou.
+
+*O que esse idiota tá pensando agora...?*
+
+---
+
+### **Uma Volta pelo Campus**
+
+Arthur se levantou do banco e estendeu a mão para Tessia.
+
+— Quer dar uma volta?
+
+Ela olhou para a mão. Depois para ele. E aceitou.
+
+Caminharam sem pressa pelas alamedas do campus, longe das aulas e dos corredores, por caminhos de pedra clara ladeados por árvores que a magia de terra da academia mantinha permanentemente em flor. Sylvie ia no ombro de Arthur, meio adormecida, e Elijah — que entendera perfeitamente a situação e, para crédito dele, resolvera não estragá-la — havia se retirado com uma desculpa esfarrapada sobre "ter que devolver uma bandeja".
+
+Arthur contou. Não tudo — nunca tudo —, mas mais do que já havia contado a qualquer pessoa da idade dele.
+
+Contou dos dois anos de estrada. Da guilda de aventureiros. Das masmorras. Da máscara. Dos treinos que não eram treinos, mas tentativas honestas de matá-lo. Falou de Jasmine, e de Kaspian Bladeheart, e das Tumbas Terríveis, e do dia em que uma nave do tamanho de uma montanha desligara a camuflagem sobre a floresta de Elenoir e mudara a vida dele para sempre.
+
+Tessia ouviu tudo em silêncio, e a cada minuto os olhos dela ficavam mais arregalados.
+
+— Não acredito que tudo isso aconteceu enquanto você era um aventureiro — disse ela finalmente.
+
+— E eu não fazia ideia que a diretora Goodsky era tão próxima do vovô — respondeu Arthur, chutando uma pedrinha do caminho. — Não é surpresa ela saber tanto sobre mim.
+
+— Sim, esse é um dos motivos de eu conseguir virar uma discípula dela.
+
+— Tenho certeza que suas habilidades pesaram mais para isso.
+
+Tessia desviou o olhar, e ficou olhando para o caminho à frente por um tempo.
+
+*Ele mudou tanto desde a última vez que o vi,* pensou ela. *Até o jeito que ele anda... parece tão... objetivo. Como se cada passo tivesse um motivo. E o rosto dele...*
+
+Ela sentiu o próprio rosto esquentar e apertou o passo meio grau.
+
+*Droga. Droga, droga, droga. Estou com tanta inveja daquela moça chamada Jasmine. Queria poder me aventurar com o Art por dois anos.*
+
+— Algo errado? — perguntou Arthur.
+
+— N-não\! — Ela deu um pulinho. — Nada mesmo, haha\!
+
+Arthur a olhou de lado por meio segundo, decidiu, com a sabedoria adquirida de duas vidas inteiras, que aquele era um assunto que não valia a pena investigar, e olhou para a frente.
+
+— Parece que chegamos nos dormitórios.
+
+— Sim... — disse Tessia.
+
+Nenhum dos dois se moveu.
+
+---
+
+### **O Presente**
+
+— Ah\! — Arthur estalou os dedos. — Antes que eu me esqueça.
+
+Ele girou o anel dimensional, e do nada — do nada absoluto, do jeito que aquele tipo de tecnologia sempre fazia as pessoas de Dicathen prenderem a respiração — surgiu na palma da mão dele uma esfera do tamanho de um punho.
+
+Ela pulsava.
+
+Não com luz, exatamente. Era mais como se a própria coisa respirasse: um verde profundo e antigo, veiado de dourado, com camadas girando devagar umas dentro das outras, e uma pressão de mana tão densa que o ar ao redor dela parecia mais pesado. Duas folhas ornamentais da árvore mais próxima se voltaram na direção do objeto por conta própria.
+
+Tessia parou de respirar.
+
+— É... é que... — Ela olhava para a esfera como quem olha para uma coisa que não deveria existir fora de um livro. — Eu ouvi da mestra Goodsky, mas...
+
+Era o núcleo bestial do Elderwood Guardian.
+
+— Aqui está — disse Arthur, estendendo a mão. — Um presentinho por se tornar uma maga de dois elementos.
+
+— E-eu não posso aceitar isso, Art\! — Tessia recuou meio passo, as mãos erguidas. — Você tem noção do que isso é? Isso não é um presente\! Isso é... isso é o tipo de coisa que uma casa nobre inteira gasta três gerações economizando para conseguir\! Isso é patrimônio de reino\! Isso—
+
+— Não consegui pensar em um presente melhor do que isso — interrompeu Arthur, simplesmente.
+
+Tessia parou.
+
+Olhou para ele.
+
+E não havia nada no rosto dele. Nenhuma pose, nenhum orgulho, nenhuma expectativa de gratidão. Ele estava simplesmente ali, de mão estendida, esperando que ela pegasse, do mesmo jeito que alguém estende um pedaço de pão.
+
+— Art... — disse ela.
+
+— De qualquer forma — Arthur colocou o núcleo nas mãos dela e fechou os dedos dela em volta dele antes que houvesse mais discussão —, amanhã nós dois temos um longo dia pela frente. Descanse bem. Te vejo depois.
+
+E foi embora, com Sylvie no ombro, sem olhar para trás.
+
+Tessia Eralith ficou parada na entrada do alojamento por um tempo longo, com o núcleo bestial de uma besta de classe S pulsando quente entre as duas mãos.
+
+*Sério mesmo...* pensou ela. *Ele me deu algo tão valioso... tão casualmente.*
+
+Ela levou o núcleo ao peito.
+
+E, no escuro do corredor, sorriu.
+
+---
+
+### **A Deusa Lunar**
+
+Quando Arthur entrou no quarto, Elijah estava enrolado no cobertor da cabeça aos pés, sentado no meio da cama como uma lagarta muito ofendida, encarando a porta.
+
+— Bem-vindo de volta — disse a lagarta.
+
+— Meu irmão. — Arthur fechou a porta. — Tu tá bem?
+
+— Por favor, se sente, senhor. — Elijah apontou solenemente para a cadeira com um braço que se libertou do cobertor apenas para esse fim. — E faça a gentileza de explicar o que presenciei mais cedo hoje.
+
+Arthur soltou um suspiro do fundo da alma.
+
+— Tudo bem...
+
+*
+
+Vinte minutos depois, Elijah continuava exatamente na mesma posição, mas agora com os olhos do tamanho de pires.
+
+— Mesmo que vocês dois sejam amigos de infância — disse ele, com a voz de alguém tentando reconstruir a própria compreensão do universo —, eu não consigo acreditar que a Deusa Lunar estava com a cabeça apoiada no seu ombro.
+
+Arthur, que estava tirando as botas, parou.
+
+— Deusa Lunar? — Ele ergueu a cabeça. — Tá chapando, né? Tu acabou de inventar isso?
+
+— Não\! — Elijah se desenrolou do cobertor de uma vez, escandalizado. — Não é o apelido que os estudantes dessa academia deram para a nossa presidente do conselho estudantil\!
+
+— Tá... — Arthur voltou a mexer na bota. — Mas por que Deusa Lunar?
+
+Elijah se levantou na cama.
+
+De pé. Em cima da cama. Com o cobertor caindo dos ombros como um manto.
+
+— Porque ela é como a lua, Arthur, seu idiota — declamou ele, apontando para a janela, onde a lua de fato estava. — A lua parece estar tão perto a ponto de você pegar\! Mas não importa o quanto tente, nunca é possível\! Ela está sempre lá\! Todo mundo olha\! E ninguém, ninguém, jamais—
+
+Ele virou o dedo para Arthur.
+
+— Mas você\! Você encostou na lua\! E você estava confortável com a lua\!
+
+— Vai dormir.
+
+— Não me manda dormir\!
+
+Sylvie, já enrolada no travesseiro de Arthur, soltou um som que qualquer pessoa razoável teria classificado como gargalhada.
+
+---
+
+### **Duas Glocks, Seis Facas e um MK18**
+
+Arthur esperou. Vinte minutos depois, quando a respiração de Elijah do outro lado do quarto ficou pesada e regular, ele se levantou sem fazer barulho.
+
+Foi até o guarda-roupa — a porta grossa demais para um guarda-roupa — e abriu.
+
+A luz fria e azulada recortou o rosto dele. Lá dentro não havia uniformes. Havia espuma cortada sob medida, trilhos, e o brilho fosco de aço tratado.
+
+— Deixa eu ver... — murmurou ele, passando os dedos pelas fileiras. — Duas Glocks e seis facas. — Ele hesitou. — Um fuzil MK18. Devem ser o suficiente.
+
+Ele considerou por um instante o lançador no fundo do compartimento.
+
+Decidiu que seria exagero.
+
+*Por enquanto.*
+
+— Deixa eu colocar isso no meu anel dimensional... — Ele passou a mão sobre o conjunto, e o equipamento inteiro desapareceu numa distorção silenciosa do ar. — Pronto.
+
+Ele fechou o armário, ajustou o punho esquerdo — onde a hidden blade descansava, ajustada, silenciosa e ansiosa — e olhou para o travesseiro.
+
+— Vamos, Sylvie.
+
+A dragoazinha abriu um olho, considerou seriamente a possibilidade de fingir que dormia, avaliou as consequências, e saltou para o ombro dele.
+
+*Você sabe que é uma reunião de comitê estudantil, né?* transmitiu ela pelo vínculo, com um sarcasmo que uma criatura daquele tamanho não deveria ser capaz de produzir.
+
+*Foi assim que eu morri da última vez,* respondeu Arthur. *Achando que era só uma reunião.*
+
+Sylvie não teve resposta para aquilo.
+
+---
+
+### **Grawder**
+
+Algum tempo depois, Arthur parou diante de uma porta dupla de madeira escura no terceiro andar do prédio administrativo, com uma placa de bronze onde se lia, em letras que alguém havia claramente mandado gravar naquela mesma semana: **Comitê Disciplinar**.
+
+— Parece que chegamos, Sylv — disse ele.
+
+Ele apoiou a mão na porta.
+
+— É aqui. Vamos ver como os tão chamados estudantes mais fortes da academia de Xyrus se parecem.
+
+Ele abriu a porta.
+
+E um rugido explodiu na cara dele.
+
+A criatura veio de lado, do ponto cego exato, com uma velocidade que teria arrancado a garganta de qualquer estudante da academia antes que ele terminasse de virar a cabeça — um leão mundial adulto, juba densa, os ombros na altura do peito de um homem, olhos dourados fixos e as presas expostas num rosnado que fez os vidros da sala tremerem.
+
+Era um teste. Um bom teste, inclusive.
+
+Sylvie saltou do ombro de Arthur.
+
+E bateu nele.
+
+Foi só isso. Uma patada. Uma pequena criatura azul do tamanho de um gato deu um tapa num leão de classe A, e o leão de classe A voou para o lado, deslizou três metros pelo assoalho encerado e parou contra a base de uma estante, onde ficou deitado, imóvel, com as orelhas achatadas contra o crânio e a cauda enfiada entre as patas.
+
+Grawder não rosnou de novo.
+
+Grawder, na verdade, tomou um cuidado extraordinário para não fazer contato visual com nada dentro daquela sala.
+
+Houve um silêncio muito completo.
+
+Um rapaz de cabelos claros, sentado numa poltrona ao fundo com os pés cruzados sobre a mesa, tirou lentamente os pés da mesa.
+
+— Bom... — disse ele. — Isso com certeza não saiu como o planejado.
+
+Arthur entrou na sala e fechou a porta atrás de si.
+
+— Devo pensar que isso é algum tipo de plano para ver o quanto minha pele é grossa? — perguntou ele.
+
+— Hmm. — O rapaz coçou o queixo, e o sorriso dele era o de quem estava se divertindo demais para se preocupar com o quanto acabara de perder. — Podemos dizer que sim.
+
+Ele se levantou.
+
+— Parece que a diretora Goodsky escolheu alguém interessante — disse ele, e os olhos dele percorreram Arthur da cabeça aos pés, demorando-se num traje que não era o uniforme da academia. — Pode ser baseado em méritos... ou talvez... uma conexão diferente?
+
+Ele inclinou a cabeça.
+
+— O sangue não mente...
+
+Arthur parou de andar.
+
+— Como é?
+
+— Nada. — O rapaz abriu as mãos, e o sorriso voltou, inocente demais. — É só um velho ditado. De qualquer forma — ele estendeu a mão —, meu nome é Kai Crestless. Quarto ano. Mas pode me chamar de Kai.
+
+Arthur apertou a mão dele.
+
+— Arthur Leywin. Baluarte. É um prazer te conhecer. — Ele indicou o ombro com a cabeça, para onde Sylvie havia retornado com toda a dignidade de quem não tinha acabado de humilhar um predador de classe A. — E esse é o meu laço, Sylvie.
+
+— Ah, entendi... — disse Kai, com um sorriso muito tranquilo.
+
+*Que tipo de besta consegue fazer o Grawder ficar tão submisso?* pensou ele, e o sorriso não vacilou nem um milímetro. *E que tipo de garoto de primeiro ano tem uma dessas sentada no ombro como se fosse um bicho de estimação?*
+
+---
+
+### **Doradrea Oreguard**
+
+— Ah — disse uma voz do outro lado da sala. — Outro Garoto Bonito e Delicado.
+
+Arthur virou-se.
+
+Encostada na parede havia uma garota da idade dele, mais alta, de ombros largos e postura de quem passava mais tempo em campos de treino do que em salas de aula. Ela o avaliava com um desânimo profundo e sincero.
+
+— Por que não tem mais homens de verdade nesse comitê? — reclamou ela, para o teto.
+
+*Por favor, Arthur,* pensou Arthur, com os olhos fechados por meio segundo. *Eles são crianças ainda. Não mata ninguém.*
+
+— Oi — disse ele, abrindo os olhos. — Então, quem seria você?
+
+— Meu nome é Doradrea Oreguard. Primeiro ano.
+
+— Ah, prazer em te conhecer, Doradrea. — Arthur assentiu educadamente. — Como sou do primeiro ano, como você, vamos nos dar—
+
+— Pare de ser tão formal\!
+
+— ...está certo.
+
+— Vamos — chamou Kai, já indo em direção a uma segunda porta no fundo da sala. — Os outros oficiais estão esperando na outra sala. — Ele olhou por cima do ombro. — A diretora Goodsky não nos falou seu nome e nem nos passou nenhum detalhe, então todo mundo está bem curioso.
+
+Arthur começou a segui-lo.
+
+Doradrea o observou por três passos.
+
+*Ele tá andando muito devagar,* pensou ela. *Já sei.*
+
+Ela o agarrou pelo braço e o arrastou.
+
+— Pessoal\! — anunciou ela, escancarando a porta com o ombro e entrando com um Arthur Leywin pendurado no próprio braço. — O último cara acabou de chegar\!
+
+---
+
+### **Os Oficiais**
+
+A segunda sala era maior — uma mesa oval de madeira escura, janelas altas dando para a borda da cidade flutuante, e meia dúzia de pessoas que se viraram todas ao mesmo tempo quando a porta se abriu com um estrondo.
+
+E um deles se levantou imediatamente.
+
+— Sabia\! — Curtis Glayder bateu a mão na mesa, rindo. — Aí está o motivo da diretora guardar tanto segredo\! É mesmo você, Arthur\!
+
+— Curtis. — Arthur soltou o braço das garras de Doradrea. — Por que não estou tão surpreso?
+
+— Sei que o Kai levou o Grawder para te testar — Curtis olhou para a porta aberta, de onde o leão mundial espiava com uma cautela absolutamente inédita —, mas... não parece que aconteceu o oposto?
+
+— Ah\! — Arthur seguiu o olhar dele. — Então esse era o seu laço?\! — Ele olhou de volta para o príncipe. — Espera. Esse é o mesmo leão mundial que você comprou quando a gente se conheceu?
+
+— É sim\! — Curtis inflou de orgulho. — Formamos um contrato de igualdade ano passado, depois que ele chegou na classe A.
+
+— Parabéns — disse Arthur, e era sincero. — É bom te ver de novo.
+
+— Digo o mesmo. — Curtis estendeu a mão, e o aperto foi firme. — E bem-vindo ao Comitê Disciplinar\! — Ele hesitou meio segundo, com um sorriso torto. — Tomara que, por eu estar perto, eu não gere nenhum problema diplomático.
+
+— Kkkkk. — Arthur riu. — Fica tranquilo. A gente é amigo. Isso não vai acontecer.
+
+— Vocês dois já se conhecem? — perguntou Doradrea, olhando de um para o outro.
+
+Antes que qualquer um respondesse, uma outra voz se ergueu — mais baixa, mais controlada, e com uma hesitação que não combinava nada com a garota que a produziu.
+
+— É... bom te ver de novo, Arthur.
+
+Kathlyn Glayder estava de pé ao lado da cadeira do irmão, e o azul-gelo dos olhos dela não conseguia decidir para onde olhar.
+
+— É bom te ver também, Kathlyn.
+
+Ela assentiu uma vez, sentou-se muito rápido, e passou os trinta segundos seguintes reorganizando papéis que já estavam perfeitamente organizados.
+
+---
+
+### **Feyfey**
+
+— Não está se esquecendo de ninguém?
+
+Um elfo esbelto e impecavelmente vestido se levantou de uma cadeira à esquerda, cruzando os braços com o ar de quem havia ensaiado aquela entrada e estava profundamente insatisfeito com o momento em que teve que usá-la.
+
+— Há quanto tempo, Arthur.
+
+Arthur o encarou.
+
+Franziu a testa.
+
+— Desculpa — disse ele. — Eu te conheço?
+
+O elfo ficou vermelho até a ponta das orelhas.
+
+— Feyrith Ivysaar III\!
+
+— Ahh\! — Arthur estalou os dedos, e o rosto dele se iluminou com uma alegria genuína e devastadora. — Lembrei\! Tu é o tal do Feyfey\!
+
+— Feyrith\!\!\! — O elfo bateu com as duas mãos na mesa. — É Feyrith\!
+
+Ele respirou fundo, alisou o casaco, e recuperou a compostura com um esforço visível.
+
+— Posso estar no primeiro ano como você — disse ele, erguendo o queixo —, mas ainda sou alguns anos mais velho. Então me trate com respeito, por favor.
+
+— Claro, claro\!
+
+— Nem parece que foi ontem que o Arthur te nocauteou com um soco — disse uma voz do canto da sala. — Bons tempos.
+
+Toda a sala se virou.
+
+Sentado no parapeito da janela, de pernas cruzadas, com um saquinho de amendoins que ninguém tinha visto ele trazer e a máscara vermelha impecavelmente inexpressiva, estava Deadpool.
+
+Arthur olhou para ele.
+
+Olhou para a janela, que estava no terceiro andar.
+
+Olhou de volta para ele.
+
+— Como, caralhos, você entrou aqui, Deadpool? — perguntou Arthur, e havia uma nota rara e genuína de perplexidade na voz dele. — Eu nem percebi você.
+
+— Segredo profissional. — Deadpool jogou um amendoim para o alto e o pegou com a boca através da máscara, o que era fisicamente impossível e que ninguém teve coragem de comentar. — Também, tecnicamente, eu tô aqui desde ontem à noite.
+
+— O quê?
+
+— Alguém tinha que checar a acústica da sala.
+
+Feyrith Ivysaar III olhou para Arthur com uma expressão de puro pedido de socorro.
+
+---
+
+### **Claire Bladeheart**
+
+— Parece que nós somos os únicos desconhecidos, hein, Theo?
+
+A garota que falou estava recostada na cabeceira da mesa, e a primeira coisa que Arthur notou nela não foi o cabelo, nem o rosto, nem o uniforme de mago de combate do sexto ano.
+
+Foi a postura.
+
+Foi o jeito como o peso dela estava distribuído — levemente para a frente, apoiado na perna de trás, os ombros soltos e as mãos livres. A postura de alguém que podia sacar e cortar sem precisar reposicionar os pés.
+
+Arthur conhecia aquela postura. Já a tinha visto num subterrâneo de guilda, do outro lado de uma arena, no corpo de um homem que descera pessoalmente para testá-lo.
+
+— Eu sou Claire Bladeheart — disse ela, empurrando-se para longe da mesa. — Estudante de mago de combate do sexto ano, e também a líder desse pequeno grupo fodido.
+
+— Bladeheart? — Arthur inclinou a cabeça. — Por acaso você possui alguma relação com o Kaspian Bladeheart?
+
+Claire parou.
+
+— Oh — disse ela, e o interesse dela subiu três níveis de uma vez. — Você conhece meu tio?
+
+— Podemos dizer que sim. — Arthur deu de ombros. — Aliás, eu tenho que mostrar para ele como aprendi algumas linguagens.
+
+Claire piscou.
+
+Decidiu não perguntar.
+
+— Bem, meu tio começou a me treinar assim que despertei — disse ela —, então várias técnicas minhas são parecidas com as dele. — Ela apertou os olhos de repente. — Espera. Você... eu vi você nos telões. Você é da Baluarte?
+
+A sala inteira ficou em silêncio.
+
+— Sou o que você chamaria de oficial de alto ranking — respondeu Arthur, sem nenhuma ênfase particular. — Mas, sim. Faço parte da organização militar conhecida como Baluarte.
+
+Claire soltou uma gargalhada curta e incrédula.
+
+— Então foi vocês\! — Ela apontou para ele. — Que meu tio disse que quase destruíram a arena de admissão de aventureiros, levando a sério até demais\! — Ela balançou a cabeça, ainda rindo. — De qualquer forma, estou feliz por reconhecer meu nome\!
+
+No parapeito, Deadpool ergueu a mão.
+
+— Tecnicamente, a arena já estava com problemas estruturais.
+
+— Deadpool.
+
+— Tô só dizendo.
+
+---
+
+### **Theodore Maxwell**
+
+O último a se levantar foi um rapaz alto, de cabelo escuro e olhos que não sorriam, e a sala pareceu ficar meio grau mais fria quando ele o fez.
+
+— Então você é da Baluarte — disse ele.
+
+Arthur virou-se.
+
+— Parece que o Comitê Disciplinar se rebaixou o suficiente — continuou Theodore Maxwell, atravessando a sala — para deixar militares entrarem para resolver os problemas dos alunos.
+
+Ele parou em frente a Arthur e estendeu a mão.
+
+E Arthur, que reconhecia um teste tão bem quanto reconhecia uma postura de espada, apertou.
+
+O mundo ficou pesado.
+
+Não foi um aperto de mão. Foi um campo — uma súbita multiplicação da gravidade concentrada num raio de meio metro ao redor deles, o tipo de coisa que faz o assoalho gemer e os joelhos dobrarem antes que o cérebro registre o que está acontecendo. As tábuas sob os pés dos dois estalaram. Os papéis na mesa mais próxima se achataram.
+
+*Isso é magia gravitacional,* pensou Arthur, com um interesse quase acadêmico. *Legal. Parece que encontrei um divergente aqui. Ele está me testando.*
+
+Ele apertou de volta. Não mais forte do que seria educado.
+
+*Me desculpa, mas o soco do Slayer é bem mais forte que isso.*
+
+Arthur não se moveu. Nem um milímetro. A postura dele não mudou, a expressão não mudou, e o único sinal de que qualquer coisa estava acontecendo era o assoalho rachando de leve sob os pés de Theodore, não sob os dele.
+
+O campo se desfez.
+
+Theodore soltou a mão e o encarou por três segundos completos.
+
+— Nada mal — disse ele. — Nem usou magia.
+
+— Parece que o Arthur é mais do que um rostinho bonito\! — Kai bateu palmas uma vez, encantado. — O Feyfey ali caiu de cara no chão quando o Theo fez isso com ele.
+
+— Eu sou um conjurador\! — explodiu Feyrith, girando na cadeira. — E o Arthur é um ampliador\! E ele foi treinado para a guerra, por gente que realmente queria matar ele nos treinos\! Não me compare com um bruto como ele\!
+
+— Isso é verdade — confirmou Deadpool, do parapeito. — Eu tava lá. A parte de querer matar ele é bem literal.
+
+— Não ajuda\!
+
+— Ora, ora\! — Claire bateu as duas mãos na mesa, e a sala inteira se calou de uma vez, o que dizia tudo sobre por que ela era a líder. — Chega de brincadeiras\! Precisamos colocar nossas caras a tapa: o anúncio durante o recrutamento dos clubes. Essa vai ser a primeira vez que os oficiais do Comitê Disciplinar mostram a cara para o corpo estudantil\!
+
+Arthur ergueu a mão.
+
+— Espera. Eu não estava sabendo disso. Não me preparei nada.
+
+— Nem precisa se preparar — disse Curtis, tranquilo. — O conselho estudantil vai fazer o anúncio. Tudo que precisamos fazer é andar e parecer durões. — Ele olhou para Arthur e deu de ombros. — No seu caso, Arthur, você só precisa olhar para os alunos.
+
+Arthur considerou aquilo.
+
+— Então acho que ter uma besta com mana gigante de classe A do nosso lado vai ajudar — disse ele, coçando o queixo de Sylvie com um dedo.
+
+Do canto da sala, Grawder — o leão mundial de classe A, laço do príncipe herdeiro de Sapin — se levantou, animadíssimo com a menção.
+
+Sylvie virou a cabeça e olhou para ele.
+
+Grawder se deitou de novo.
+
+— Muito bem, então\! — Claire ergueu o punho. — Vamos mostrar a todos os intitulados estudantes lá fora contra quem eles vão estar se quebrarem as regras\!
+
+---
+
+### **O Anúncio dos Clubes**
+
+O pátio central da Academia Xyrus estava lotado.
+
+Era a semana de recrutamento dos clubes — o momento do ano em que cada sociedade, cada equipe de duelos, cada círculo de estudo e cada agremiação de nobres montava a própria barraca e passava três dias tentando roubar calouros uns dos outros. Faixas pendiam entre as colunas. Estandartes de casas nobres tremulavam em fileiras. Havia música, comida, e o barulho absoluto de três mil adolescentes num espaço aberto.
+
+E, num palanque erguido no centro, Tessia Eralith se aproximou do círculo de amplificação sonora.
+
+O pátio se calou.
+
+— Agora que todas as regras para o recrutamento dos clubes foram esclarecidas — disse ela, e a voz dela atravessou o espaço com a firmeza que ela vinha treinando havia um ano —, o conselho estudantil gostaria de apresentá-los formalmente ao comitê que foi escolhido a dedo pela diretora para resolver e prevenir conflitos entre os estudantes.
+
+Um murmúrio percorreu a multidão. Ninguém tinha ouvido falar de comitê nenhum.
+
+— Assim como para aplicar as punições para os encrenqueiros — continuou Tessia —, pelo bem da manutenção da paz e da segurança de todos os estudantes...
+
+Ela ergueu o olhar, e por um instante, um instante muito curto, os olhos dela procuraram um ponto específico na lateral do palanque e o encontraram.
+
+— Por favor, deem as boas-vindas a eles...
+
+Ela abriu a mão na direção da entrada leste do pátio.
+
+— O COMITÊ DISCIPLINAR\!
+
+E eles entraram.
+
+Vieram lado a lado, e o pátio inteiro se virou de uma vez, três mil cabeças girando no mesmo movimento.
+
+Claire Bladeheart na frente, o uniforme de mago de combate do sexto ano e um sorriso que prometia trabalho. Theodore Maxwell ao lado dela, e o ar ficava mais pesado a cada passo que ele dava — literalmente, e os estudantes da primeira fila descobriram isso ao mesmo tempo. Kai Crestless com as mãos nos bolsos e um sorriso de quem sabia de coisas. Curtis Glayder, príncipe herdeiro de Sapin, com Grawder caminhando ao lado dele — a juba erguida, os olhos dourados varrendo a multidão, um leão mundial de classe A em pleno pátio de uma escola. Kathlyn Glayder, e o ar ao redor dela cintilava de gelo que ninguém a vira conjurar. Feyrith Ivysaar III, de queixo erguido e postura impecável, aproveitando cada segundo daquilo. Doradrea Oreguard, de ombros largos e passada firme, encarando a multidão como quem procura briga e ficaria muito feliz de encontrar.
+
+E, no meio deles, um calouro ruivo de doze anos que não usava o uniforme da academia.
+
+Ele não fez nada. Não ergueu a voz, não liberou pressão de mana, não fez pose nenhuma.
+
+Ele só olhou.
+
+E a fileira da frente recuou meio passo.
+
+Na segunda fila, um garoto com o rosto ainda inchado e uma reputação que jamais se recuperaria — Charles Ravenpor II — sentiu o sangue sumir do rosto e, muito discretamente, tentou se esconder atrás de um colega mais alto.
+
+Um pouco mais atrás, encostado numa coluna, Nicolas Dreyl da casa Dreyl olhou para o palco, reconheceu o calouro que havia agarrado pelo ombro no primeiro dia de aula, e chegou à conclusão silenciosa e devastadora de que talvez devesse considerar seriamente estudar mais e brigar menos.
+
+E, mais atrás ainda, num canto onde ninguém prestava atenção, um anão baixinho chamado Broznean Boor olhou para o ruivo no palco — o mesmo que havia inventado uma presidente do conselho estudantil do nada para salvar o braço dele — e sorriu.
+
+No palanque, Tessia baixou a mão e recuou meio passo, cedendo o centro para eles.
+
+*Eles realmente parecem durões,* pensou ela.
+
+E então o olhar dela pousou em Arthur, e um outro pensamento, muito menos presidencial, atravessou a mente da presidente do conselho estudantil da Academia Xyrus antes que ela conseguisse impedi-lo.
+
+*Ele nem está usando o uniforme. De novo.*
+
+*Por que isso fica bom nele?*
+
+Ela pigarreou, endireitou as costas, e voltou a ser a Deusa Lunar.
+
+Do parapeito de uma janela do terceiro andar, invisível para o pátio inteiro, Deadpool ergueu o saquinho de amendoins num brinde solitário.
+
+— Essa escola tá ferrada — disse ele, satisfeito. — Adorei.
+
+E, muito acima da cidade flutuante de Xyrus, escondida atrás de uma camada de céu que não era céu, a *Infinity Dreadnought* pairava em silêncio absoluto — com dezoito equipes, dois exércitos de máquinas, e uma frota de veículos guardada nos conveses, esperando o dia em que uma briga de refeitório deixasse de ser o maior problema daquele continente.
+
+---
