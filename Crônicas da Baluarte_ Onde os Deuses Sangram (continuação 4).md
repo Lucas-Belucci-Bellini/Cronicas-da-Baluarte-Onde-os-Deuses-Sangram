@@ -8674,7 +8674,7 @@ O grito de Elijah foi alto o suficiente para acordar dois andares do alojamento.
 
 — Vai dormir, Elijah.
 
-— VAI DORMIR?\! — Elijah se levantou de um pulo. — VOCÊ NÃO PODE SÓ...
+— Vai dormir?\! — Elijah se levantou de um pulo. — Você não pode só...
 
 Sylvie, no colo de Arthur, soltou um som que era inconfundivelmente uma risada.
 
@@ -8702,7 +8702,7 @@ Elijah abriu um sorriso torto, e a energia voltou de uma vez, do jeito que sempr
 
 — Isso nem é uma coisa que existe.
 
-— É SIM. Eu li num livro.
+— É sim. Eu li num livro.
 
 — Você não lê livros.
 
@@ -8776,7 +8776,7 @@ Um dos dois estudantes atrás de Charles bufou.
 
 — Disse que somos todos magos? — zombou ele. — Você deve ter crescido em uma caverna ou algo assim, para não saber a diferença entre nós e eles.
 
-— EU MOREI EM UMA CAVERNA\! — berrou Elijah, com uma indignação tão genuína e tão fora do esperado que o babaca recuou meio passo. — E até o conselho estudantil está falando que a gente não deveria tratar uns aos outros com diferenças\!
+— Eu morei em uma caverna\! — berrou Elijah, com uma indignação tão genuína e tão fora do esperado que o babaca recuou meio passo. — E até o conselho estudantil está falando que a gente não deveria tratar uns aos outros com diferenças\!
 
 — Claro que falariam isso — Charles recuperou o fôlego e o desprezo ao mesmo tempo. — É tudo política e aparência. Mas essa não é a realidade. — Ele estalou os dedos, e uma pequena espiral de mana começou a se formar na palma da mão. — Parece que o único jeito de você perceber a diferença é vendo com os próprios olhos\!
 
@@ -8800,7 +8800,7 @@ Simplesmente aconteceu.
 
 *Essas vinhas...* — a mente dele corria, e não gostava de nenhuma das conclusões a que chegava. *Tem um estudante capaz de usar magia divergente poderosa dessas? Ou é um professor...?*
 
-— Ei\! — gritou ele, mais alto. — ME SOLTA\!
+— Ei\! — gritou ele, mais alto. — Me solta\!
 
 Arthur se levantou devagar e olhou por cima do ombro, na direção de onde as vinhas tinham vindo.
 
@@ -8834,7 +8834,7 @@ Ele deu um passo à frente.
 
 — Tudo o que estão fazendo é envergonhar suas famílias fazendo isso.
 
-— Hah\! — Charles ergueu o queixo, e ali, naquele momento exato, ele tomou a pior decisão da vida escolar dele. — Não tem nada de vergonhoso em colocar um lixo como você no devido lugar\! Meus pais ficariam ORGULHOSOS\!
+— Hah\! — Charles ergueu o queixo, e ali, naquele momento exato, ele tomou a pior decisão da vida escolar dele. — Não tem nada de vergonhoso em colocar um lixo como você no devido lugar\! Meus pais ficariam orgulhosos\!
 
 Elijah, dois passos atrás, apertou os olhos.
 
@@ -8860,7 +8860,7 @@ Cada telão. Cada corredor. Cada pátio. Cada jardim. Três mil estudantes da ma
 
 O som que veio depois foi de uma academia inteira caindo na gargalhada ao mesmo tempo, e ele foi tão alto que assustou os pássaros nos telhados da cidade flutuante.
 
-— CALEM A BOCA\! — berrou Charles, se contorcendo nas vinhas, incapaz de alcançar as próprias calças. — TODO MUNDO CALADO\! N-NÃO OLHEM\!
+— Calem a boca\! — berrou Charles, se contorcendo nas vinhas, incapaz de alcançar as próprias calças. — Todo mundo calado\! N-não olhem\!
 
 Arthur já estava andando.
 
@@ -8922,7 +8922,7 @@ Arthur se endireitou, ainda massageando a mandíbula, e olhou para Tessia — e 
 
 — Doeu tanto assim?
 
-— SIM\! — Ela tirou as mãos do rosto e apontou para a testa, onde uma marca vermelha e absolutamente indigna já começava a inchar. — Olha como está inchado\!
+— Sim\! — Ela tirou as mãos do rosto e apontou para a testa, onde uma marca vermelha e absolutamente indigna já começava a inchar. — Olha como está inchado\!
 
 Arthur olhou. Estava, de fato, inchado.
 
@@ -9094,7 +9094,7 @@ Arthur, que estava tirando as botas, parou.
 
 — Deusa Lunar? — Ele ergueu a cabeça. — Tá chapando, né? Tu acabou de inventar isso?
 
-— NÃO\! — Elijah se desenrolou do cobertor de uma vez, escandalizado. — Não é o apelido que os estudantes dessa academia deram para a nossa presidente do conselho estudantil\!
+— Não\! — Elijah se desenrolou do cobertor de uma vez, escandalizado. — Não é o apelido que os estudantes dessa academia deram para a nossa presidente do conselho estudantil\!
 
 — Tá... — Arthur voltou a mexer na bota. — Mas por que Deusa Lunar?
 
@@ -9102,15 +9102,15 @@ Elijah se levantou na cama.
 
 De pé. Em cima da cama. Com o cobertor caindo dos ombros como um manto.
 
-— Porque ela é como a lua, Arthur, seu IDIOTA — declamou ele, apontando para a janela, onde a lua de fato estava. — A lua parece estar tão perto a ponto de você pegar\! Mas não importa o quanto tente, nunca é possível\! Ela está sempre lá\! Todo mundo olha\! E ninguém, NINGUÉM, jamais—
+— Porque ela é como a lua, Arthur, seu idiota — declamou ele, apontando para a janela, onde a lua de fato estava. — A lua parece estar tão perto a ponto de você pegar\! Mas não importa o quanto tente, nunca é possível\! Ela está sempre lá\! Todo mundo olha\! E ninguém, ninguém, jamais—
 
 Ele virou o dedo para Arthur.
 
-— MAS VOCÊ\! VOCÊ ENCOSTOU NA LUA\! E VOCÊ ESTAVA CONFORTÁVEL COM A LUA\!
+— Mas você\! Você encostou na lua\! E você estava confortável com a lua\!
 
 — Vai dormir.
 
-— NÃO ME MANDA DORMIR\!
+— Não me manda dormir\!
 
 Sylvie, já enrolada no travesseiro de Arthur, soltou um som que qualquer pessoa razoável teria classificado como gargalhada.
 
@@ -9150,7 +9150,7 @@ Sylvie não teve resposta para aquilo.
 
 ### **Grawder**
 
-Algum tempo depois, Arthur parou diante de uma porta dupla de madeira escura no terceiro andar do prédio administrativo, com uma placa de bronze onde se lia, em letras que alguém havia claramente mandado gravar naquela mesma semana: **COMITÊ DISCIPLINAR**.
+Algum tempo depois, Arthur parou diante de uma porta dupla de madeira escura no terceiro andar do prédio administrativo, com uma placa de bronze onde se lia, em letras que alguém havia claramente mandado gravar naquela mesma semana: **Comitê Disciplinar**.
 
 — Parece que chegamos, Sylv — disse ele.
 
@@ -9230,7 +9230,7 @@ Encostada na parede havia uma garota da idade dele, mais alta, de ombros largos 
 
 — Ah, prazer em te conhecer, Doradrea. — Arthur assentiu educadamente. — Como sou do primeiro ano, como você, vamos nos dar—
 
-— PARE de ser tão formal\!
+— Pare de ser tão formal\!
 
 — ...está certo.
 
@@ -9244,7 +9244,7 @@ Doradrea o observou por três passos.
 
 Ela o agarrou pelo braço e o arrastou.
 
-— PESSOAL\! — anunciou ela, escancarando a porta com o ombro e entrando com um Arthur Leywin pendurado no próprio braço. — O ÚLTIMO CARA ACABOU DE CHEGAR\!
+— Pessoal\! — anunciou ela, escancarando a porta com o ombro e entrando com um Arthur Leywin pendurado no próprio braço. — O último cara acabou de chegar\!
 
 ---
 
@@ -9300,11 +9300,11 @@ Franziu a testa.
 
 O elfo ficou vermelho até a ponta das orelhas.
 
-— FEYRITH IVYSAAR III\!
+— Feyrith Ivysaar III\!
 
-— Ahh\! — Arthur estalou os dedos, e o rosto dele se iluminou com uma alegria genuína e devastadora. — Lembrei\! Tu é o tal do FEYFEY\!
+— Ahh\! — Arthur estalou os dedos, e o rosto dele se iluminou com uma alegria genuína e devastadora. — Lembrei\! Tu é o tal do Feyfey\!
 
-— FEYRITH\!\!\! — O elfo bateu com as duas mãos na mesa. — É FEYRITH\!
+— Feyrith\!\!\! — O elfo bateu com as duas mãos na mesa. — É Feyrith\!
 
 Ele respirou fundo, alisou o casaco, e recuperou a compostura com um esforço visível.
 
@@ -9370,7 +9370,7 @@ A sala inteira ficou em silêncio.
 
 Claire soltou uma gargalhada curta e incrédula.
 
-— Então foi VOCÊS\! — Ela apontou para ele. — Que meu tio disse que quase destruíram a arena de admissão de aventureiros, levando a sério até demais\! — Ela balançou a cabeça, ainda rindo. — De qualquer forma, estou feliz por reconhecer meu nome\!
+— Então foi vocês\! — Ela apontou para ele. — Que meu tio disse que quase destruíram a arena de admissão de aventureiros, levando a sério até demais\! — Ela balançou a cabeça, ainda rindo. — De qualquer forma, estou feliz por reconhecer meu nome\!
 
 No parapeito, Deadpool ergueu a mão.
 
@@ -9416,11 +9416,11 @@ Theodore soltou a mão e o encarou por três segundos completos.
 
 — Parece que o Arthur é mais do que um rostinho bonito\! — Kai bateu palmas uma vez, encantado. — O Feyfey ali caiu de cara no chão quando o Theo fez isso com ele.
 
-— EU SOU UM CONJURADOR\! — explodiu Feyrith, girando na cadeira. — E o Arthur é um AMPLIADOR\! E ele foi TREINADO PARA A GUERRA, por gente que realmente queria MATAR ele nos treinos\! Não me compare com um bruto como ele\!
+— Eu sou um conjurador\! — explodiu Feyrith, girando na cadeira. — E o Arthur é um ampliador\! E ele foi treinado para a guerra, por gente que realmente queria matar ele nos treinos\! Não me compare com um bruto como ele\!
 
 — Isso é verdade — confirmou Deadpool, do parapeito. — Eu tava lá. A parte de querer matar ele é bem literal.
 
-— NÃO AJUDA\!
+— Não ajuda\!
 
 — Ora, ora\! — Claire bateu as duas mãos na mesa, e a sala inteira se calou de uma vez, o que dizia tudo sobre por que ela era a líder. — Chega de brincadeiras\! Precisamos colocar nossas caras a tapa: o anúncio durante o recrutamento dos clubes. Essa vai ser a primeira vez que os oficiais do Comitê Disciplinar mostram a cara para o corpo estudantil\!
 
@@ -9440,7 +9440,7 @@ Sylvie virou a cabeça e olhou para ele.
 
 Grawder se deitou de novo.
 
-— MUITO BEM, ENTÃO\! — Claire ergueu o punho. — Vamos mostrar a todos os intitulados estudantes lá fora contra quem eles vão estar se quebrarem as regras\!
+— Muito bem, então\! — Claire ergueu o punho. — Vamos mostrar a todos os intitulados estudantes lá fora contra quem eles vão estar se quebrarem as regras\!
 
 ---
 
