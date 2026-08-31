@@ -27,6 +27,20 @@
 ***No dia seguinte***
 **(sala de aula)**
 
-**Aluna(gata 1)**:
-**"nossa ele é tão gato, nossa amiga, porque vc não vai lá tentar pedir para ser amiga dele**
+**Aluna(gata 1):**
+**"aquele não é um membro do comite diciplinar  que vimos ontem?"**
+
+**Aluna(gata 2):**
+**"sim, durante o anuncio para o recrutamento dos clubes, acho que o nome dele é Arthur!"**
+
+**Aluna(gata 1):**
+**"serio, eu acho ele tão gatinho"**
+
+**Aluna(gata 2):**
+**"se tá tão afim dele, tenta primeiro se tornar amiga dele, vai lá pede para ser amiga dele"**
+
+**Aluna(gata 1):**
+**"eu quero mas..."**
+
+**nota:**((não sei fazer coisa de romance (se teve antes foi porque eu pedi ajuda de ia para escrever roteiro de romance, pode ser que no futuro da fan fic, eu creie algum romance, mas só no futuro)mas não vai ter tanto romance nesse arco))
 
