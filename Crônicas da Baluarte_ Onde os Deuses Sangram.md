@@ -1,8 +1,8 @@
 # A Chegada do Caos
 
-## **Cap 1 🌎 Círculo de Fogo: A Chegada do Caos**
+## **Cap 1  Círculo de Fogo: A Chegada do Caos**
 
-### **🌊 O Gênesis dos Kaiju**
+### ** O Gênesis dos Kaiju**
 
 A história humana havia mudado para sempre no dia 10 de agosto de 2013, quando o primeiro Kaiju emergiu da **Fenda**, uma fissura interdimensional no fundo do Oceano Pacífico. O monstro, nomeado *Trespasser*, varreu San Francisco, revelando que a Terra não estava sozinha e que éramos frágeis.
 
@@ -22,7 +22,7 @@ Raleigh e Mako se conectaram. Desta vez, não houve incidentes. O *Drift* foi pr
 
 ---
 
-### **🚨 Alerta de Intrusão**
+### ** Alerta de Intrusão**
 
 No *Control Room* do Shatterdome, a equipe de Pentecost estava revisando os dados de teste quando os alto-falantes de emergência dispararam.
 
@@ -48,7 +48,7 @@ Então, o inesperado aconteceu.
 
 Um brilho ofuscante de energia tecnológica irrompeu no céu acima da criatura. Não era verde, nem azul, mas um brilho **carmesim e branco** puro, como a fúria concentrada de um bilhão de sóis. Um som de rasgo interdimensional ecoou, e uma massa metálica colossal começou a cair do céu, direto para o Campeão do Inferno.
 
-### **⚔️ O Juízo Final Chega a Hong Kong**
+### ** O Juízo Final Chega a Hong Kong**
 
 A aterrissagem foi um evento sísmico.
 
@@ -70,7 +70,7 @@ O *DEUS IRAE* avançou, o chão tremendo com o impacto de cada passo. A motosser
 
 A coisa uivou de agonia, um som que não era como um Kaiju, mas como **mil almas sendo esmagadas**. O *DEUS IRAE* continuou avançando, a lâmina cortando mais e mais fundo.
 
-### **🩸 A Reação dos Pilotos**
+### ** A Reação dos Pilotos**
 
 Os pilotos dos Jaegers observavam, paralisados, no heliporto:
 
@@ -91,9 +91,9 @@ O Marechal Pentecost respirou fundo no Control Room. Ele acabara de testemunhar 
 
 "Isso muda tudo," ele disse para si mesmo. "Descubram o que é aquela máquina. E descubram o que ele quer."
 
-## **Cap  2⚔️ Círculo de Fogo: A Chegada do Caos \- Parte II: A Revelação**
+## **Cap  2 Círculo de Fogo: A Chegada do Caos \- Parte II: A Revelação**
 
-### **📞 O Conselho dos Predadores**
+### ** O Conselho dos Predadores**
 
 Dentro da cabine de comando do *DEUS IRAE*, envolto em uma tecnologia que transformava o gigantesco Jaeger em uma extensão perfeita de seu **Praetor Suit**, o Doom Slayer não estava sozinho. A base móvel, criada pelos engenheiros da dimensão mais tecnológica, continha um *Hub* de comunicação quântico, capaz de atravessar o tecido da realidade.
 
@@ -127,7 +127,7 @@ Todos concordaram com as preparações. Antes que a conexão se encerrasse, Opti
 
 As projeções desapareceram. O Slayer girou o assento, seu foco voltando para o Shatterdome.
 
-### **🚶 O Gigante em Movimento**
+### ** O Gigante em Movimento**
 
 No heliponto, os pilotos observavam a massa de carne e osso esmagada na água.
 
@@ -143,7 +143,7 @@ O som do avanço era gutural. Não era o *Clank-Clank-Clank* dos Jaegers humanos
 
 De fato, o *DEUS IRAE* parou a cerca de cem metros do Shatterdome, na água rasa, sua cabeça pairando a uma altura vertiginosa acima do heliponto. Sua postura colossal era um monólito de intimidação.
 
-### **🚪 A Descida do Caçador**
+### ** A Descida do Caçador**
 
 Houve um *hiss* hidráulico enquanto a cabeça do *DEUS IRAE* se inclinava. Um elevador de descida maciço, disfarçado na coluna da garganta do Titan, estendeu-se até o heliporto.
 
@@ -161,7 +161,7 @@ Para evitar que a tensão se transformasse em caos, e seguindo o conselho de Opt
 
 > **Doom Slayer:** "Me chamo **Doom Slayer**."
 
-### **🔥 O Impulso e o Veto do Marechal**
+### ** O Impulso e o Veto do Marechal**
 
 A reação foi a que se esperava de um grupo de soldados no limite:
 
@@ -185,7 +185,7 @@ Pentecost deu um passo à frente, olhando para o Slayer com uma coragem forçada
 
 A tensão permaneceu, mas as armas foram lentamente abaixadas. O Marechal Pentecost havia prevalecido. O primeiro passo da "diplomacia" havia sido dado.
 
-## **Cap 3🤝 O Encontro de Dois Mundos**
+## **Cap 3 O Encontro de Dois Mundos**
 
 O silêncio no heliponto era ensurdecedor, quebrado apenas pelo vento forte da baía. O **Doom Slayer**, uma silhueta imponente sob o manto da armadura Praetor, permaneceu imóvel. Ele avaliou o Marechal Pentecost, cujas feições tensas e o olhar firme indicavam um líder capaz, mesmo que desesperado.
 
@@ -205,7 +205,7 @@ O Slayer processou a informação. A menção de "fenda no oceano" e "outra dime
 
 > **Doom Slayer:** (Ele apontou para a carcaça do demônio.) "E o Campeão do Inferno... Ele não é um Kaiju. Ele é um demônio. Um general de hordas. Vocês têm problemas maiores do que pensam."
 
-### **🛡️ O Armazenamento e o Apoio Chega**
+### ** O Armazenamento e o Apoio Chega**
 
 A seriedade da situação foi absorvida por todos. O Slayer percebeu que precisava de mais tempo para conversar.
 
@@ -223,7 +223,7 @@ Pentecost acenou lentamente. O Shatterdome estava construído para comportar at�
 
 Ele pressionou outro botão em seu pulso. No céu noturno, sobre as nuvens escuras de Hong Kong, um portal dimensional **colossal** se abriu com um som de rasgo intergaláctico. Não era uma fissura pequena como a Fenda, mas um buraco negro pulsante, forrado de energia dourada e azul.
 
-### **🚀 A Chegada dos Reforços**
+### ** A Chegada dos Reforços**
 
 A cena que se seguiu paralisou o Shatterdome inteiro.
 
@@ -259,7 +259,7 @@ Pentecost não tinha mais energia para argumentar sobre a logística de um exér
 
 > **Marechal Stacker Pentecost:** (Estendendo a mão ao Slayer) "Bem-vindo ao Shatterdome, Doom Slayer. Parece que temos muito o que conversar sobre demônios e estratégias de guerra interdimensional."
 
-## **Cap 4🚀 Os Aliados no Shatterdome**
+## **Cap 4 Os Aliados no Shatterdome**
 
 O pouso foi orquestrado com precisão militar multiversal. As naves da UNSC e do Imperium mantiveram-se em órbita, liberando *Dropships* e *Thunderhawks* carregados de engenheiros, equipamento de análise e módulos de base pré-fabricados.
 
@@ -270,7 +270,7 @@ No heliporto, o Marechal Pentecost assistiu a uma cena surreal. **Sung Jin-Woo**
 * **Kratos**, o Fantasma de Esparta, exalando uma aura sombria de poder divino.  
 * Dois **Custodes**, a elite dourada do Imperador, com armaduras ornamentadas e lanças de poder.
 
-### **👑 O Encontro dos Colossos**
+### ** O Encontro dos Colossos**
 
 No hangar principal do Shatterdome, um portal temporal de luz azul se abriu. De lá, emergiu um imponente caminhão de semi-reboque vermelho e azul: **Optimus Prime**. Ele transformou-se com um *clank* poderoso, atingindo quase **9 metros de altura**.
 
@@ -290,7 +290,7 @@ Optimus Prime acenou com a cabeça para o Slayer, que estava prestes a entrar na
 
 > **Optimus Prime:** "Entendido. A ameaça de **Megatron** está contida por enquanto. Vá. Seu anfitrião o espera."
 
-### **🚶 A Marcha até o Centro de Comando**
+### ** A Marcha até o Centro de Comando**
 
 O grupo de seres multiversais, liderado pelo Marechal Pentecost, caminhava pelos corredores do Shatterdome. A **presença combinada de Kratos, o Slayer, e os dois Custodes** era tão intensa que os técnicos e engenheiros locais se encolhiam nas paredes.
 
@@ -324,7 +324,7 @@ O Slayer balançou a cabeça.
 
 > **Doom Slayer:** "Ineficiente. Se o inimigo cortar a conexão, dois corpos caem. Meu Titan é construído para uma mente. Uma única e violenta."
 
-### **🧪 A Chegada Inoportuna**
+### ** A Chegada Inoportuna**
 
 Enquanto o Marechal se preparava para detalhar o funcionamento do *Drift*, a porta do Centro de Comando se abriu, e entraram apressadamente os dois principais cientistas do Shatterdome: o Dr. Newton Geiszler (nervoso, falando rápido) e o Dr. Hermann Gottlieb (metódico, com a cabeça sempre nas equações).
 
@@ -350,7 +350,7 @@ O Dr. Geiszler levou a mão à boca, seus olhos arregalados, enquanto Hermann Go
 
 O Marechal Pentecost esfregou a têmpora. A diplomacia era cansativa.
 
-## **Cap 5🧠 O Plano Suicida e a Revelação de DNA**
+## **Cap 5 O Plano Suicida e a Revelação de DNA**
 
 O choque dos cientistas se transformou rapidamente em pânico profissional. O Dr. Newton Geiszler, gaguejando menos sob o peso da urgência, e o Dr. Hermann Gottlieb, endireitando os óculos, levaram o Marechal Pentecost e a comitiva multiversal de volta aos monitores.
 
@@ -365,7 +365,7 @@ A ideia de usar uma bomba atômica para resolver um problema dimensional causou 
 * **Custodes:** (Um deles, o mais próximo, falou com uma voz modulada e autoritária) "Altamente ineficiente. A energia pura do Imperium ou uma ogiva do Master Chief teriam maior rendimento se direcionadas."  
 * **Dante:** (Com um sorriso irônico) "Ah, adoro quando os humanos acham que explosões resolvem o problema demoníaco."
 
-### **🧬 A Conexão do DNA**
+### ** A Conexão do DNA**
 
 O Dr. Geiszler continuou, ignorando os comentários, desesperado para provar seu valor.
 
@@ -393,7 +393,7 @@ Gottlieb, surpreso com a pergunta de um gigante dourado, hesitou.
 
 O clima na sala pesou. A superioridade calma dos Custodes era intimidante, e a ideia de Newton de usar um cérebro de Kaiju estava claramente rejeitada por todos, exceto, talvez, por Dante, que achou divertido.
 
-### **🤪 A Teimosia Científica**
+### ** A Teimosia Científica**
 
 O Marechal deu a ordem para que o grupo se movesse para o grande *Hall* onde os Jaegers estavam armazenados, a fim de discutir a próxima fase da estratégia de base.
 
@@ -421,7 +421,7 @@ Ele se recuperou lentamente.
 
 > **Dr. Newton Geiszler:** "Eu vi\! Eu vi a Fenda do lado de lá\! Eles não são de lá\! Eles são criados\! O Precursor... ele é enorme... ele comanda a colmeia\! Eles estão enviando um Categoria 4 em duas horas, mas... eles querem um alvo específico em Hong Kong\! Eu tenho os detalhes\!"
 
-### **🌐 Convocação de Elite**
+### ** Convocação de Elite**
 
 O Marechal Pentecost absorveu a informação. Ele precisava de mais do que a prova de Geiszler; precisava de mais inteligência humana para entender a ameaça no nível de solo.
 
@@ -439,9 +439,9 @@ O **Marechal Pentecost** olhou para a tarefa de integrar *mais* aliados multiver
 
 > **Marechal Stacker Pentecost:** "Bem, se for para ir até Hong Kong para confrontar o inimigo, que seja com a melhor segurança possível. Que este **Task Force 141** nos traga as informações de que precisamos."
 
-## **Cap 6🏙️ O Alerta Duplo e o Plano de Batalha**
+## **Cap 6 O Alerta Duplo e o Plano de Batalha**
 
-### **👻 A Chegada da Task Force 141**
+### ** A Chegada da Task Force 141**
 
 O portal de sombras aberto por Sung Jin-Woo permaneceu estável. Dele, emergiram rapidamente os membros da **Task Force 141**, liderados pelo imponente **Capitão Price**, o metódico **Gaz**, o sarcástico **Soap MacTavish** e, por último, mas não menos ameaçador, **Ghost**, a máscara de caveira escondendo sua expressão. Eles estavam armados com tecnologia de ponta da UNSC e do seu próprio universo.
 
@@ -459,7 +459,7 @@ O Slayer interveio, dirigindo-se a Ghost:
 
 > **Ghost:** (Sua voz rouca e calma) "Entendido, Slayer. Vamos levá-lo para um passeio. Ninguém toca no nerd."
 
-### **🚨 Alerta de Intrusão**
+### ** Alerta de Intrusão**
 
 No momento em que o plano de infiltração começava a ser detalhado, as sirenes no Shatterdome dispararam novamente, um som estridente que cortou a conversa.
 
@@ -493,7 +493,7 @@ O Marechal Pentecost confiava no Slayer mais do que em seus próprios Jaegers ne
 
 > **Marechal Stacker Pentecost:** "O **DEUS IRAE** na frente. Os Jaegers ficam a **$5$ quilômetros** da costa, em modo de defesa, fora do raio de ação do EMP do Leatherback\! Sigam o Slayer, mas não se aproximem\! Ghost, leve Geiszler. Ele precisa de um novo cérebro de Kaiju."
 
-### **🛡️ Defesas Invisíveis**
+### ** Defesas Invisíveis**
 
 Enquanto os pilotos iam para o hangar, o Slayer acionou um comando em sua manopla que só ele e os engenheiros Custodes conseguiam detectar.
 
@@ -503,7 +503,7 @@ Enquanto os pilotos iam para o hangar, o Slayer acionou um comando em sua manopl
 
 Em um processo discreto e rápido, a avançada tecnologia de reforço dimensional foi aplicada às quatro máquinas humanas. Os Jaegers humanos agora possuíam uma camada de blindagem que não constava em nenhum projeto da PPDC – uma blindagem que exigiria um ataque como uma **baforada atômica de Godzilla** apenas para arranhar a superfície, garantindo que os pilotos sobreviveriam à primeira onda de ataque Kaiju.
 
-### **🌃 Operação: Olho na Colmeia**
+### ** Operação: Olho na Colmeia**
 
 Raleigh e Mako entraram no *Gipsy Danger*. Os Kaidanovsky, no *Cherno Alpha*. O Slayer acionou o portal para convocar o **DEUS IRAE**.
 
@@ -515,7 +515,7 @@ No heliponto, o Capitão Price entregou um rádio criptografado a Ghost.
 
 Ghost, com sua equipe e o Dr. Geiszler (segurando nervosamente seu equipamento de laboratório), partiu para a missão de infiltração em Hong Kong, enquanto o **DEUS IRAE** se materializava sobre a baía, pronto para enfrentar um ataque duplo Categoria 4\.
 
-## **Cap 7🌃 Infiltração Noturna e Confronto Colossal**
+## **Cap 7 Infiltração Noturna e Confronto Colossal**
 
 ### **🏢 Hong Kong: Cidade na Calmaria**
 
@@ -531,7 +531,7 @@ Equipe B (Bunker/Escolta): Ghost, Gaz, e o Dr. Newton Geiszler.
 
 > **Dr. Newton Geiszler:** "Entendido. Concentração. Cérebro de Kaiju. Espero que seja um espécime de Categoria 3 ou superior. A complexidade do córtex... uau\!"
 
-### **🤫 A CIA na Cidade**
+### ** A CIA na Cidade**
 
 A Equipe B caminhou pelas ruas escuras. Ghost tinha um destino em mente para a segurança do Doutor.
 
@@ -549,7 +549,7 @@ Enquanto isso, a **Equipe A (Contato)** chegou ao local de encontro, uma viela e
 
 > **Soap MacTavish:** "Tente ser rápido, Capitão. Este lugar cheira a Kaiju."
 
-### **🚨 As Sirenes e a Evacuação**
+### ** As Sirenes e a Evacuação**
 
 A Equipe A mal havia estabelecido contato com a fonte de informação quando um som grave e penetrante rasgou o ar, vindo da baía: **As Sirenes de Alerta de Kaiju**.
 
@@ -565,7 +565,7 @@ Naquele momento, na viela, a equipe de Contato ligou para a equipe do Bunker.
 
 A Equipe A e a B evacuaram, correndo para a base segura da CIA, enquanto a cidade entrava em pânico.
 
-### **⚓ Posicionamento na Baía**
+### ** Posicionamento na Baía**
 
 Simultaneamente, o Marechal Pentecost supervisionava o lançamento dos Jaegers.
 
@@ -575,7 +575,7 @@ Na linha de frente, no centro da Baía de Hong Kong, o **DEUS IRAE** se material
 
 O oceano ferveu. O primeiro a emergir foi o **Otachi**, o Kaiju alado. A criatura olhou para o monolito negro à sua frente.
 
-### **💥 O Confronto Monumental**
+### ** O Confronto Monumental**
 
 O Otachi, em sua arrogância de Categoria 4, tentou replicar a tática que usou contra o *Crimson Typhoon* no passado: atacar pelas laterais com suas pinças afiadas.
 
@@ -609,7 +609,7 @@ O **DEUS IRAE** estava na linha de frente, envolvido em uma brutal troca de golp
 
 O cenário estava montado: **Luta de Titãs** no meio da baía, enquanto a **Task Force 141** se refugiava com o Doutor na cidade, pronto para a próxima fase da guerra.
 
-## **Cap 8🔨 O Poder Cru do Deus Irae**
+## **Cap 8 O Poder Cru do Deus Irae**
 
 A batalha entre o **DEUS IRAE** e o **Leatherback** não era uma dança de combate aprimorada por tecnologia, mas sim um espetáculo de força bruta primordial. O Titan do Doom Slayer, sem o seu gerador de EMP, atacava com a fúria e o peso de um planeta em colisão.
 
@@ -633,7 +633,7 @@ O corpo do Leatherback, sangrando profusamente com sangue azul-esverdeado, ficou
 
 ---
 
-## **Cap 9🦅 O Ataque Aéreo e a Armadura Secreta**
+## **Cap 9 O Ataque Aéreo e a Armadura Secreta**
 
 Enquanto isso, a **Otachi** voava rapidamente em direção à costa, onde os Jaegers estavam posicionados. O Categoria 4 alado mergulhou em direção ao **Cherno Alpha**, o Jaeger Russo, o mais lento e robusto da linha de defesa.
 
@@ -665,7 +665,7 @@ O ataque inesperado do Otachi contra os Jaegers provou uma coisa: o reforço fun
 
 ---
 
-## **Cap 10🗣️ Inteligência na Sala de Comando**
+## **Cap 10 Inteligência na Sala de Comando**
 
 No Centro de Comando, o Marechal Stacker Pentecost, Kratos, Vergil, Dante e Master Chief assistiam ao monitor. A luta do *DEUS IRAE* contra o Leatherback foi rápida, brutal e decisiva. A incapacitação do Leatherback e a resistência dos Jaegers eram a prova de que o Slayer era inestimável.
 
@@ -683,9 +683,9 @@ O Slayer, em sua Titan, viu o Otachi voando para o interior da cidade. Ele tinha
 
 > **Doom Slayer:** "Entendido. A caçada começou. Vou atrás do Otachi."
 
-## **⚔️ A Securitização do Espécime e a Caçada Urbana**
+## ** A Securitização do Espécime e a Caçada Urbana**
 
-### **⛓️ O Desmembramento Tático**
+### ** O Desmembramento Tático**
 
 O **Leatherback**, ferido e com seu braço gerador de EMP arrancado, jazia inerte na baía. O **Doom Slayer** no *DEUS IRAE* não estava satisfeito com uma incapacitação parcial. O Titan se inclinou sobre o monstro, e o Slayer ativou as garras de aperto de seu braço esquerdo.
 
@@ -699,7 +699,7 @@ Os Jaegers russos e chineses, chocados com a facilidade do desmembramento, mas a
 
 > **Sasha Kaidanovsky (Cherno Alpha):** "Entendido. A máquina de abate está estabilizada."
 
-### **✈️ Bloqueio Aéreo e Perseguição**
+### ** Bloqueio Aéreo e Perseguição**
 
 Com o Leatherback neutralizado, o Slayer deu a ordem de bloqueio aéreo.
 
@@ -709,7 +709,7 @@ O **Otachi**, que havia sido repelido pelas defesas reforçadas dos Jaegers, per
 
 O Kaiju alado mergulhou, aterrissando pesadamente no distrito comercial de Hong Kong, abandonando o fator surpresa do ataque aéreo pelo fator de camuflagem do combate em terra. Nas vielas e arranha-céus, o Otachi estava em seu elemento, um predador que podia se esconder. Sua nova prioridade: **eliminar o elo fraco**. O único humano capaz de desvendar os segredos dos Precursores.
 
-### **👻 A Infiltração Protegida**
+### ** A Infiltração Protegida**
 
 Na base segura e indestrutível da CIA, a **Task Force 141** e o Dr. Geiszler estavam em alerta máximo. O Dr. Geiszler estava agitado, olhando para seus monitores.
 
@@ -721,7 +721,7 @@ Ghost tocou em um pequeno painel na parede do bunker. O ar ao redor da sala vibr
 
 > **Ghost:** "O dispositivo está ativo. Nada neste universo vai nos encontrar. Nem mesmo o seu 'Precursor'. O Slayer não deixa pontas soltas."
 
-### **👣 A Caçada Através da Cidade**
+### ** A Caçada Através da Cidade**
 
 No centro da baía, o **DEUS IRAE** começou a marchar em direção à costa. O chão de Hong Kong tremeu com os passos do Titan. A perseguição monumental havia começado.
 
@@ -743,9 +743,9 @@ O Otachi, vendo a aproximação implacável do **DEUS IRAE**, soltou um rugido b
 
 O Slayer estava apertando o cerco, pronto para **neutralizar (sem matar)** o Otachi e garantir o cérebro que o Marechal e o Doutor Gottlieb precisavam.
 
-## **Cap 11🩸 A Captura e a Faca no Meio**
+## **Cap 11 A Captura e a Faca no Meio**
 
-### **🏙️ O Cerco e o Ataque Conjunto**
+### ** O Cerco e o Ataque Conjunto**
 
 O **Doom Slayer** havia encurtado impiedosamente a distância no *DEUS IRAE*. O Otachi, forçado a abandonar a camuflagem da cidade, tentou desesperadamente fugir pela zona portuária.
 
@@ -759,7 +759,7 @@ O *Gipsy Danger* lançou suas correntes de pulso, que se enrolaram temporariamen
 
 O Otachi gritou, tentando se soltar, mas o Slayer viu sua oportunidade. Não havia mais tempo para sutilezas. Ele precisava de uma **incapacitação rápida e espetacular** para garantir a amostra.
 
-### **🗡️ O Corte do Caçador**
+### ** O Corte do Caçador**
 
 O **DEUS IRAE** rugiu metalicamente e correu para a frente. O Slayer ativou sua arma mais letal em escala Titan: a **Crucible (Crisol)**, que se manifestou em seu punho esquerdo como uma gigantesca lâmina de energia vermelha pura, oscilando com fúria.
 
@@ -805,7 +805,7 @@ A guerra estava apenas começando, mas agora a humanidade tinha um caminho.
 
 ## **Cap 12🏥 O Retorno e a Confissão do Marechal**
 
-### **⚓ Remoção e Segurança**
+### ** Remoção e Segurança**
 
 Antes de permitir que o **DEUS IRAE** fosse içado de volta para o Shatterdome, o **Doom Slayer** garantiu que o espécime Leatherback (agora uma massa desmembrada, mas ainda viva) fosse movido para a área de extração.
 
@@ -815,7 +815,7 @@ Antes de permitir que o **DEUS IRAE** fosse içado de volta para o Shatterdome, 
 
 O **DEUS IRAE** foi o último a ser içado, sua massa colossal exigindo vários helicópteros de transporte da UNSC e dos Autobots em conjunto. Ele foi depositado no hangar do Shatterdome, juntamente com o *Gipsy Danger* e o *Striker Eureka*.
 
-### **🩸 Sangue no Nariz**
+### ** Sangue no Nariz**
 
 Os pilotos e o Slayer foram para o Centro de Comando. O Marechal Pentecost estava aguardando, pronto para parabenizar sua força de elite.
 
@@ -839,7 +839,7 @@ O Marechal suspirou, sabendo que não podia esconder a verdade daqueles dois.
 
 > **Marechal Stacker Pentecost:** "Venham comigo. Precisamos conversar."
 
-### **🤫 A Confissão**
+### ** A Confissão**
 
 Pentecost levou Raleigh e o Slayer para seu escritório privado.
 
@@ -859,7 +859,7 @@ O Slayer processou a informação.
 
 > **Marechal Stacker Pentecost:** "Não. Eu o chamei porque você foi o **único piloto** a encerrar uma luta de Kaiju, **trazer o Jaeger de volta sozinho** e caminhar para a costa. O *Gipsy* estava quase intacto. O *Cherno* estava sempre danificado. O *Striker* é forte, mas você... você conseguiu o impossível."
 
-### **👤 O Piloto Solitário e o Irmão Perdido**
+### ** O Piloto Solitário e o Irmão Perdido**
 
 O Slayer interveio, voltando ao ponto que o intrigava desde o início.
 
@@ -883,7 +883,7 @@ O Slayer apontou para o peito de Raleigh.
 
 A gravidade da situação nunca havia sido tão clara. A tecnologia humana, baseada na união mental, era uma vulnerabilidade fatal para o inimigo demoníaco do Slayer.
 
-## **Cap 13📜 A Lenda do Doom Slayer**
+## **Cap 13 A Lenda do Doom Slayer**
 
 O escritório do Marechal Pentecost estava envolto em silêncio após as confissões. O Doom Slayer permaneceu de pé, um monólito de metal e fúria, enquanto Raleigh e Pentecost absorviam a profundidade de sua presença. O Slayer percebeu que, para obter a confiança e a colaboração total deles, era necessário mais do que apenas força; era necessário contexto.
 
@@ -891,7 +891,7 @@ O escritório do Marechal Pentecost estava envolto em silêncio após as confiss
 
 Ele se virou para Raleigh e o Marechal. Sua voz, embora modulada pela armadura, ganhou uma seriedade fria e profunda.
 
-### **🌌 A Queda e a Ascensão**
+### ** A Queda e a Ascensão**
 
 > **Doom Slayer:** "Meu mundo não era este. Era a Terra. Eu era um soldado. Um Fuzileiro Naval. A guerra começou de forma diferente, mas o inimigo era o mesmo: **demônios**."
 
@@ -913,7 +913,7 @@ O Slayer apontou para a sua armadura, que parecia um templo de metal.
 
 > **Doom Slayer:** "Esta armadura não é meramente um traje. É um invólucro para minha **Fúria Imortal**. Os Sentinelas, em sua sabedoria, me deram a tecnologia para amplificar minha força e proteger minha alma. Fui ungido. Me tornei o **Doom Slayer**."
 
-### **🔱 O Julgamento e o Nome**
+### ** O Julgamento e o Nome**
 
 > **Doom Slayer:** "Meu nome não é um título, é um **Julgamento**. Para os demônios, sou o que a lenda deles chama de 'Aquele de quem eles fugiram'. Sou a única coisa que eles temem."
 
@@ -931,7 +931,7 @@ O Marechal Pentecost percebeu a dimensão total de quem estava em sua base. Não
 
 > **Doom Slayer:** "Não acredito. Eu **sei**. O DNA Kaiju é apenas a ponta do iceberg. Agora, vamos ao que interessa. Seus cientistas têm a amostra. Precisamos do relatório."
 
-## **Cap 14⏳ A Calmaria Anormal e os Preparativos Finais**
+## **Cap 14 A Calmaria Anormal e os Preparativos Finais**
 
 Os três — o Marechal Pentecost, Raleigh Becket e o Doom Slayer — deixaram o escritório, carregados com o peso das verdades recém-reveladas. Ao retornarem ao Centro de Comando, o ambiente estava carregado de tensão e atividade. Os engenheiros da UNSC e dos Autobots trabalhavam lado a lado com a equipe da PPDC, fundindo tecnologias.
 
@@ -957,9 +957,9 @@ O Slayer acenou, satisfeito com a eficiência de seus aliados. O plano final est
 
 Apesar da nova ameaça na Fenda, a estratégia estava definida: não haveria mais defesa. A guerra iria para a casa do inimigo.
 
-## **Cap 15🤯 O Alerta Final: A Fenda é Neural**
+## **Cap 15 O Alerta Final: A Fenda é Neural**
 
-### **💣 A Bomba no Striker Eureka**
+### ** A Bomba no Striker Eureka**
 
 Após a revelação chocante do Marechal, a tensão no Shatterdome estava palpável. A urgência de fechar a Fenda era total.
 
@@ -969,7 +969,7 @@ Após a revelação chocante do Marechal, a tensão no Shatterdome estava palpá
 
 Os engenheiros da UNSC e dos Autobots prontamente redirecionaram os cabos e o dispositivo nuclear para o *Striker Eureka*.
 
-### **🧠 A Revelação do Drift**
+### ** A Revelação do Drift**
 
 Enquanto os Jaegers eram preparados para o lançamento submerso, os dois cientistas, **Dr. Hermann Gottlieb** e **Dr. Newton Geiszler**, trabalhavam freneticamente na Sala de Análise. Eles haviam finalmente conseguido estabilizar a massa cerebral do Otachi e iniciaram o **Drift Neural** codificado.
 
@@ -985,7 +985,7 @@ O grito de Geiszler ecoou no Centro de Comando, paralisando a todos.
 
 A equipe de pilotagem, que já estava nas cabeças dos Jaegers para o embarque final, ouviu a notícia pelo rádio, horrorizada.
 
-### **🌊 O Processo de Lançamento e o Alerta Triplo**
+### ** O Processo de Lançamento e o Alerta Triplo**
 
 O plano teve que mudar em segundos. Os Jaegers estavam sendo levados pelos transportadores da UNSC para a área de lançamento submersa.
 
@@ -1003,7 +1003,7 @@ Foi então que Tendo Choi gritou, seu pânico finalmente superando seu treinamen
 
 > **Dr. Newton Geiszler:** (Gritando no rádio) "**É um evento triplo\! Eu estava certo\!** O Precursor nos viu\!"
 
-### **🔱 O Slayer na Linha de Frente**
+### ** O Slayer na Linha de Frente**
 
 O terror da **Categoria 5** pairou sobre todos. O Marechal Pentecost, sabendo que a prioridade era o plano de "bater e agarrar", olhou para o monitor, onde o ícone do **DEUS IRAE** estava na posição mais avançada.
 
@@ -1017,7 +1017,7 @@ O *DEUS IRAE* ativou seus propulsores submersos, avançando sozinho para o encon
 
 A nova fase da guerra havia começado, com a Categoria 5 e a necessidade de se agarrar a um Kaiju para fechar a Fenda.
 
-## **Cap 16🌊 O Encontro de Dois Chefes**
+## **Cap 16 O Encontro de Dois Chefes**
 
 O abismo escuro da Fenda era aterrorizante. No entanto, o **DEUS IRAE** avançava sozinho, impulsionado por propulsores que rasgavam as correntes subaquáticas.
 
@@ -1034,7 +1034,7 @@ Os dois Jaegers mais pesados e lentos se desviaram para interceptar os escudos d
 
 ---
 
-### **🔱 O Categoria 5 Aguarda**
+### ** O Categoria 5 Aguarda**
 
 O **Doom Slayer** acelerou o *DEUS IRAE*. Ele logo avistou o Slattern.
 
@@ -1068,7 +1068,7 @@ A voz do **Dr. Newton Geiszler**, agora com a clareza de um cientista em seu ele
 
 > **Doom Slayer:** "Entendido. Então, desmembrar, sim. Matar, não. Vocês conseguem."
 
-### **🤝 O Acordo do Categoria 5**
+### ** O Acordo do Categoria 5**
 
 O Slayer voltou seu foco para o **Slattern**. O Categoria 5, colossal, ainda pairava na escuridão aquática. O Slattern não havia atacado, parecendo respeitar o silêncio.
 
@@ -1076,7 +1076,7 @@ O Slayer voltou seu foco para o **Slattern**. O Categoria 5, colossal, ainda pai
 
 O Categoria 5 se moveu levemente, suas três caudas serpenteando, como se estivesse alongando-se para o combate. Ele exalava uma aura de poder que nem mesmo o *DEUS IRAE* podia ignorar.
 
-### **🎯 Divisão de Alvos e o Salto Quântico**
+### ** Divisão de Alvos e o Salto Quântico**
 
 O Slayer precisava garantir que os outros Jaegers também tivessem suas "chaves" de acesso. O plano original de fechar a Fenda exigia que três Jaegers entrassem para garantir que a bomba chegasse ao destino (um com a bomba, os outros dois como escolta).
 
@@ -1098,7 +1098,7 @@ O **Slattern** começou a se mover, suas três caudas chicoteando a água escura
 
 O abismo entre o **DEUS IRAE** e o **Slattern** desapareceu em um instante. O Categoria 5 não esperou. Percebendo que o Titan que o encarava era diferente, o Slattern atacou com uma fúria calculada, digna de seu título.
 
-### **🌊 O Triplo Chicote**
+### ** O Triplo Chicote**
 
 O Slattern usou seu atributo mais perigoso: suas **três caudas maciças**, cada uma terminada em uma ponta semelhante a uma lâmina de serra. Elas chicotearam a água escura, gerando uma corrente de choque que atingiu o *DEUS IRAE*.
 
@@ -1110,7 +1110,7 @@ O Slattern fechou a distância, desferindo uma cabeçada colossal. O *DEUS IRAE*
 
 O Slattern liberou um de seus braços e tentou rasgar o ombro do *DEUS IRAE*, mas a armadura reforçada com a Matriz Argent (a camada invisível) repeliu o ataque.
 
-### **🔥 Desmembramento Tático**
+### ** Desmembramento Tático**
 
 O Slayer sabia que precisava eliminar a mobilidade do Slattern sem tocar em seu cérebro. Se o Precursor desejava uma luta digna, o Slayer a daria com sua arma mais temida.
 
@@ -1122,7 +1122,7 @@ A energia carmesim da lâmina passou pelo osso e pela quitina do Slattern como s
 
 O Slattern recuou, cambaleando. Agora ele era menos móvel e tinha menos armas, mas sua fúria aumentou dez vezes.
 
-### **⚓ Vitória da Subjugação**
+### ** Vitória da Subjugação**
 
 O Categoria 5, ignorando a dor, avançou com a última cauda restante, tentando empalá-lo.
 
@@ -1138,11 +1138,11 @@ O Categoria 5 estava imobilizado, uivando de dor e frustração, mas **vivo**. O
 
 O **Slattern** estava ali, uma massa mutilada, mas biologicamente ativa, na frente do portal. Ele era o bilhete de entrada. A vitória brutal, mas não letal, estava completa.
 
-## **Cap 18💥 O Combate das Duplas: Subjugação das Chaves**
+## **Cap 18 O Combate das Duplas: Subjugação das Chaves**
 
 Enquanto o **DEUS IRAE** mantinha o Slattern (Categoria 5\) imobilizado na boca da Fenda, as outras duas duplas de Jaegers lutavam desesperadamente para subjugar seus Categoria 4s designados. A luta era uma corrida contra o tempo, pois o portal neural se tornava cada vez mais instável.
 
-### **🟡 Cherno Alpha e Crimson Typhoon vs. Categoria 4 \#1**
+### ** Cherno Alpha e Crimson Typhoon vs. Categoria 4 \#1**
 
 O **Cherno Alpha** (o baluarte Russo) e o **Crimson Typhoon** (a máquina de combate Chinesa) foram encarregados de conter o primeiro Categoria 4\. O Kaiju era rápido e usava seu corpo para golpear e rasgar.
 
@@ -1162,7 +1162,7 @@ O *Cherno Alpha* utilizou as grandes hastes de contenção em seus punhos para c
 
 > **Sasha Kaidanovsky:** "A Chave Russa está pronta, Slayer\!"
 
-### **🔴 Gipsy Danger e Striker Eureka vs. Categoria 4 \#2**
+### ** Gipsy Danger e Striker Eureka vs. Categoria 4 \#2**
 
 Mais longe, o **Gipsy Danger** e o **Striker Eureka** enfrentavam o segundo Categoria 4\. Esta era a luta de maior risco, pois o *Striker* carregava a bomba nuclear desacoplável.
 
@@ -1180,7 +1180,7 @@ O *Gipsy Danger* rapidamente usou suas garras de pulso (Chain Swords) para **ama
 
 O *Gipsy Danger* e o *Striker Eureka* se posicionaram, usando os braços livres para se prenderem ao flanco do Kaiju, garantindo que o Categoria 4 servisse de escudo e de "passe de viagem".
 
-### **➡️ A Ordem de Avanço**
+### ** A Ordem de Avanço**
 
 Três Kaijus — o Slattern mutilado, mas vivo, e dois Categoria 4 contidos — estavam agora imobilizados na escuridão fria, cada um preso por uma ou duas máquinas de guerra humanas.
 
@@ -1190,9 +1190,9 @@ O **DEUS IRAE**, usando o **Slattern** como um escudo biológico gigante, ativou
 
 O momento da verdade havia chegado.
 
-## **Cap 19🌌 A Travessia: Portal para o Anteverse**
+## **Cap 19 A Travessia: Portal para o Anteverse**
 
-### **🚪 Cruzando a Fenda**
+### ** Cruzando a Fenda**
 
 O **DEUS IRAE**, impulsionando o corpo massivo, mutilado, mas ainda ativo, do **Slattern**, foi o primeiro a se aproximar do portal.
 
@@ -1207,7 +1207,7 @@ Em seguida, vieram os outros.
 
 A comunicação com o Shatterdome foi cortada no momento em que as máquinas de guerra cruzaram o limiar dimensional. A última imagem na tela de Tendo Choi foi o portal se fechando atrás do último Kaiju e Jaeger, selando-os no desconhecido.
 
-### **💀 O Anteverse: O Inferno Criativo**
+### ** O Anteverse: O Inferno Criativo**
 
 A experiência da travessia não era agradável. Para o **Doom Slayer**, era familiar: a sensação de ser puxado e distorcido através do tecido da realidade. Para os pilotos humanos, era um pesadelo de sobrecarga sensorial.
 
@@ -1234,9 +1234,9 @@ No horizonte, uma estrutura maciça, pulsante e organicamente construída, domin
 
 O ar do Anteverse tremeu. Os Precursores, cientes da invasão, estavam reagindo. A contagem regressiva para a destruição de toda a criação Kaiju havia começado.
 
-## **Cap 20💥 Missão Suicida: A Destruição do Anteverse**
+## **Cap 20 Missão Suicida: A Destruição do Anteverse**
 
-### **👁️ O Foco do Inimigo**
+### ** O Foco do Inimigo**
 
 No deserto vermelho do **Anteverse**, os cinco Jaegers se reuniram. A visão do Palácio dos Precursores — uma estrutura orgânica pulsante que cheirava a maldade e engenharia biológica — era a confirmação de que esta era a fonte de toda a praga Kaiju.
 
@@ -1248,7 +1248,7 @@ Naquele instante, três assinaturas de Kaiju apareceram, emergindo de estruturas
 
 > **Doom Slayer:** "Vão primeiro. Levem essas gravações para a superfície. Vocês precisam contar ao mundo o que viram. Eu vou garantir a explosão e o fechamento."
 
-### **💣 O Sacrifício Tático**
+### ** O Sacrifício Tático**
 
 O **Striker Eureka**, carregando o dispositivo nuclear, avançou. A missão era garantir que a bomba atingisse o ponto mais vulnerável do Palácio dos Precursores. Com a cobertura dos outros Jaegers, Chuck e Herc Hansen ativaram o mecanismo de acoplamento da bomba.
 
@@ -1264,7 +1264,7 @@ Eles sabiam que a bomba detonaria em questão de minutos, e que o Slattern, o Le
 
 > **Doom Slayer:** (Sua voz era pura resolução) "**Vão. Eu vou preparar o timer.** Eles me temem. Temerão até o fim. Fiquem tranquilos. **Eu saio daqui com o Jaeger.** É a única maneira de fechar essa abominação de Fenda de uma vez por todas. Vão. Assim vocês poderão dizer ao mundo que **os 5 Jaegers que resistiram continuam de pé**."
 
-### **⏳ A Última Corrida**
+### ** A Última Corrida**
 
 Os quatro Jaegers dispararam em direção ao portal. O *DEUS IRAE*, sozinho no epicentro do mundo inimigo, esperou até ter a confirmação visual de que o **Striker Eureka** e os outros haviam entrado na Fenda.
 
@@ -1274,7 +1274,7 @@ Os três Kaijus Categoria 4 que emergiam finalmente se concentraram no *DEUS IRA
 
 O Slayer não tentou lutar. Ele ativou todos os propulsores de seu Titan. O *DEUS IRAE* se transformou em um **projétil negro e verde**, deixando os Kaijus para trás. Ele não estava fugindo; estava **garantindo** que a Fenda fosse destruída pelo poder de sua própria saída, combinada com a explosão nuclear iminente.
 
-### **💥 O Fechamento**
+### ** O Fechamento**
 
 No Pacífico, na escuridão sob o mar, o vórtice da Fenda ainda pulsava.
 
@@ -1320,7 +1320,7 @@ Os cinco Jaegers — o **DEUS IRAE**, o **Striker Eureka**, o **Gipsy Danger**, 
 
 ---
 
-## **📞 Último Contato e Retorno**
+## ** Último Contato e Retorno**
 
 Enquanto os Jaegers se dirigiam para o ponto de extração, a comunicação com o Shatterdome foi restaurada.
 
@@ -1328,13 +1328,13 @@ Enquanto os Jaegers se dirigiam para o ponto de extração, a comunicação com 
 
 O **Master Chief** e os **Custodes** na base se entreolharam. O Guardião do Inferno havia salvado um universo que não era o seu.
 
-## **🏟️ O Triunfo no Shatterdome**
+## ** O Triunfo no Shatterdome**
 
 O retorno dos cinco Jaegers foi um evento que paralisou Hong Kong. As máquinas de guerra, agora símbolos de vitória, foram transportadas de volta ao Shatterdome. O **DEUS IRAE** foi o primeiro a ser desancorado, seu peso colossal fazendo a plataforma de pouso tremer.
 
 O hangar estava lotado. Engenheiros, técnicos, os cientistas, a **Task Force 141**, os **Custodes** (em seu dourado imponente) e o **Marechal Stacker Pentecost**, visivelmente fraco, mas de pé, aguardavam.
 
-### **🫂 O Reencontro**
+### ** O Reencontro**
 
 Os pilotos humanos desceram, cambaleando pela exaustão e pela tensão pós-batalha.
 
@@ -1350,7 +1350,7 @@ Ele tentou abraçar Raleigh, mas tossiu, levando a mão ao nariz. Ele estava no 
 
 > **Chuck Hansen:** "Pai, conseguimos. A bomba detonou. E o Slayer conseguiu a carona."
 
-### **🗿 O Confronto do Colosso**
+### ** O Confronto do Colosso**
 
 O **Doom Slayer** emergiu do *DEUS IRAE*. Ele desceu a rampa de acesso, a armadura coberta pela fuligem do Anteverse, as placas de metal emanando um calor residual. Ele era a personificação da **Vitória Absoluta**.
 
@@ -1364,7 +1364,7 @@ Os **Custodes** avançaram, suas armaduras douradas contrastando com o metal esm
 
 > **Custode:** (Sua voz profunda e modulada) "Doom Slayer. Sua capacidade de exterminar ameaças dimensionais é incomparável. Sua tática de 'subjugação não letal' para garantir a passagem foi calculada com precisão. O Imperador da Humanidade tomará nota."
 
-### **🧪 Os Cientistas e a Prova**
+### ** Os Cientistas e a Prova**
 
 Os **Doutores Geiszler e Gottlieb** estavam quase eufóricos, analisando os dados de telemetria dos Jaegers.
 
@@ -1378,7 +1378,7 @@ O Marechal Pentecost assentiu, apoiando-se levemente em Mako. O momento do alív
 
 O palco estava montado para a revelação final da ameaça multiversal.
 
-## **Cap 22🍻 A Proposta e o Futuro de Hong Kong**
+## **Cap 22 A Proposta e o Futuro de Hong Kong**
 
 O ambiente no bar improvisado no Shatterdome era de alívio puro, apesar da exaustão e da presença maciça de guerreiros e cientistas multiversais. Pilotos, Price, Soap, e os Doutores estavam todos ali, celebrando com bebidas modestas (e algumas mais fortes).
 
@@ -1404,9 +1404,9 @@ O Slayer olhou para o Marechal Pentecost, que estava sentado e visivelmente mais
 
 A oferta do Doom Slayer — a promessa de permanência — era o maior seguro que o planeta Terra poderia ter.
 
-## **✨ O Milagre do Imperador e a Verdade Sombria**
+## ** O Milagre do Imperador e a Verdade Sombria**
 
-### **👑 O Toque da Imortalidade**
+### ** O Toque da Imortalidade**
 
 O **Marechal Stacker Pentecost** tossiu, sentindo o peso da doença e da responsabilidade. Ele estava prestes a aceitar o comando do Doom Slayer para o futuro da PPDC quando o grupo de **Custodes** avançou.
 
@@ -1440,7 +1440,7 @@ Com a saúde restaurada e a mente clara, o Marechal exigiu o relatório final. O
 
 > **Dr. Newton Geiszler:** "Mas... O *Drift* me mostrou algo mais. A destruição do Anteverse não mata os **Precursores**. Eles são como IA neural. Eles apenas fogem para outra dimensão e tentam abrir outra Fenda em outro lugar. Eles são persistentes."
 
-### **🤝 O Novo Comando**
+### ** O Novo Comando**
 
 O Marechal Pentecost, agora curado e ciente da escala cósmica da guerra, virou-se para o Doom Slayer.
 
@@ -1450,9 +1450,9 @@ O Marechal Pentecost, agora curado e ciente da escala cósmica da guerra, virou-
 
 O Doom Slayer acenou. A fúria tinha um novo lar, e a Terra tinha um novo, e eterno, guardião.
 
-## **Cap 23🏰 O Castelo da Humanidade: O Epílogo**
+## **Cap 23 O Castelo da Humanidade: O Epílogo**
 
-### **🤝 A União Eterna**
+### ** A União Eterna**
 
 A vitória contra o Kaiju Categoria 5 e o fechamento da Fenda provaram ser apenas o prelúdio de uma colaboração multiversal sem precedentes. Diferente do esperado, nenhuma das forças aliadas se retirou. O juramento de proteção do **Doom Slayer** ressoou em todos os cantos.
 
@@ -1460,7 +1460,7 @@ A vitória contra o Kaiju Categoria 5 e o fechamento da Fenda provaram ser apena
 * **A Presença de Sung Jin-Woo:** **Sung Jin-Woo**, o Monarca das Sombras, estabeleceu um **Portal Sombra** permanente em Hong Kong, ligando-o à sua base. Seu exército de Sombras se tornou a **força de inteligência e reconhecimento** mais eficaz da cidade, capaz de detectar distorções dimensionais antes mesmo que a Fenda pudesse se manifestar.  
 * **Os Guardiões Metafísicos:** **Kratos**, **Vergil** e **Dante** estabeleceram um pacto. Kratos concordou em treinar um novo corpo de elite da PPDC em combate corpo a corpo brutal. Vergil e Dante monitoravam as ameaças de natureza demoníaca ou sobrenatural que pudessem tentar usar as cicatrizes dimensionais abertas pelo Slayer.
 
-### **🌃 A Transformação de Hong Kong**
+### ** A Transformação de Hong Kong**
 
 **Cinco Anos Depois...**
 
@@ -1470,7 +1470,7 @@ Hong Kong não era mais uma cidade, mas sim uma **fortaleza viva** — o **Caste
 * **A Frota de Jaegers:** Dentro da cidade fortificada, novos Jaegers estavam sendo construídos, menores, mais rápidos e baseados em *Drifts* de apenas um piloto (com tecnologia neural fornecida pelos Custodes e refinada pelos Doutores Geiszler e Gottlieb, que agora operavam em um complexo de pesquisa de última geração). O *Gipsy Danger* e o *Striker Eureka* receberam *upgrades* constantes, mantendo-se na linha de frente.  
 * **O Comando:** O **Shatterdome** original foi expandido, tornando-se o **Centro de Comando Global da PPDC**. O Marechal Stacker Pentecost, curado e rejuvenescido, liderava a organização com a sabedoria de seus anos e a vitalidade de um novo homem.
 
-### **🛡️ O Vigia Eterno**
+### ** O Vigia Eterno**
 
 No topo da torre mais alta de Hong Kong, no centro da base reconstruída, existia uma plataforma de observação.
 
@@ -1486,9 +1486,9 @@ O Slayer olhou para o céu. Ele era o **Protetor Supremo**, o guerreiro eterno q
 
 # A Lenda dos Cinco
 
-## **Cap 1🕰️ Salto Temporal: 10 Anos Depois...**
+## **Cap 1 Salto Temporal: 10 Anos Depois...**
 
-### **🤫 O Segredo do Piloto Único**
+### ** O Segredo do Piloto Único**
 
 O tempo voou sobre o **Castelo da Humanidade**. Cinco anos se passaram desde que o Doom Slayer fechou a Fenda e transformou Hong Kong na sede inexpugnável da PPDC.
 
@@ -1496,7 +1496,7 @@ Durante esse período de reconstrução e rearmamento, o **Doom Slayer** manteve
 
 O risco não era apenas a sobrecarga neural, mas a **vulnerabilidade psíquica** revelada pelo próprio Slayer no *Drift*. Ele sabia que, sem sua Fúria protetora, a mente de um piloto humano seria instantaneamente destruída ou dominada por qualquer ameaça psíquica ou demoníaca que se apresentasse. A tecnologia de um piloto foi arquivada, garantindo que o **Drift Neural de dois pilotos** permanecesse o padrão de segurança da PPDC.
 
-### **🏙️ Os Novos Acontecimentos (Contexto do Segundo Filme)**
+### ** Os Novos Acontecimentos (Contexto do Segundo Filme)**
 
 A paz de cinco anos havia gerado uma nova geração de pilotos e uma complacência perigosa no mundo exterior.
 
@@ -1509,15 +1509,15 @@ O Marechal Pentecost, com o Slayer ao seu lado, mantinha a PPDC em estado de ale
 
 A ameaça Kaiju parecia ter desaparecido, mas a vigilância do Slayer e das forças aliadas permanecia inabalável, esperando o dia em que o Precursor tentaria abrir uma nova porta para o seu horror.
 
-## **Cap 2🌅 O Mercado Negro de Metal**
+## **Cap 2 O Mercado Negro de Metal**
 
-### **🤫 O Ruído Global**
+### ** O Ruído Global**
 
 Dez anos se passaram desde que o **DEUS IRAE** fechou a Fenda. A PPDC de Hong Kong, sob a liderança do Marechal Pentecost e a vigilância do Slayer, era o baluarte global, mas o resto do mundo relaxou e se diversificou.
 
 Relatos de todo o mundo de pessoas construindo seus próprios Jaegers se espalhavam. A tecnologia de combate era agora um produto. Em comunidades litorâneas reconstruídas com os destroços da guerra anterior, o ferro-velho de Kaijus e Jaegers era o novo ouro.
 
-### **🌃 O Ladrão e o Scrapper**
+### ** O Ladrão e o Scrapper**
 
 Em uma cidade costeira reconstruída, um jovem vivia sua vida como sempre: de forma rebelde.
 
@@ -1539,7 +1539,7 @@ Jake, que havia pilotado Jaegers Mark-VI em simulações, não se intimidou com 
 
 O pequeno mini-Jaeger deu um soco metálico que quase derrubou Jake. A perseguição começou entre os destroços, um eco diminuto e rebelde das batalhas de dez anos atrás, mas com um toque muito mais pessoal.
 
-### **👁️ A Sombra no Baluarte**
+### ** A Sombra no Baluarte**
 
 Enquanto Jake e Amara se perseguiam, a milhares de quilômetros de distância, no **Baluarte de Hong Kong**, o **Doom Slayer** estava na plataforma de observação.
 
@@ -1553,9 +1553,9 @@ Ele não estava olhando para a Fenda. Seus olhos (ou sensores) estavam focados n
 
 A sensação de perigo iminente do Slayer era um alarme de alarme. Ele havia sentido algo "errado" na assinatura de energia de uma das novas tecnologias que estavam sendo desenvolvidas. O verdadeiro catalisador da nova guerra estava prestes a se manifestar.
 
-## **Cap 3🎯 O Retorno do Filho Pródigo e o Legado Imortal**
+## **Cap 3 O Retorno do Filho Pródigo e o Legado Imortal**
 
-### **🚁 Captura e Convocação**
+### ** Captura e Convocação**
 
 A perseguição entre **Jake Pentecost** e **Amara Namani** terminou abruptamente quando as forças de segurança da PPDC, que monitoravam o comércio ilegal de tecnologia Jaeger, os capturaram. Amara, com seu *Scrapper*, e Jake foram levados sob custódia, não para a prisão, mas para o **Baluarte de Hong Kong**.
 
@@ -1569,7 +1569,7 @@ Eles foram levados diretamente ao Centro de Comando. O **Marechal Stacker Pentec
 
 O Marechal apontou para Amara, a jovem inventora de joelhos. **Marechal Stacker Pentecost:** "E a Srta. Namani. Seu talento é inegável. Você será uma cadete. É hora de usar essa habilidade para salvar o mundo, não para roubar dele."
 
-### **⚙️ A Nova Equipe e a Lenda dos Cinco**
+### ** A Nova Equipe e a Lenda dos Cinco**
 
 Jake foi levado para o hangar principal, onde foi apresentado à nova geração de pilotos. Eles eram jovens, talentosos e treinados sob a sombra da lenda.
 
@@ -1594,9 +1594,9 @@ O Marechal gesticulou para os cinco Jaegers veteranos.
 
 O legado era pesado: Jake pilotaria o **Gipsy Avenger**, mas ele estaria sempre na sombra dos **Cinco Guardiões Imortais** e de seu Protetor Supremo, o **Doom Slayer**.
 
-## **🏋️ Disciplina Espartana: O Treinamento do Slayer**
+## ** Disciplina Espartana: O Treinamento do Slayer**
 
-### **🤝 A Visita do Protetor**
+### ** A Visita do Protetor**
 
 Após apresentar Jake ao novo time e reforçar o peso dos **Cinco Guardiões Imortais**, o Marechal Pentecost virou-se para o **Doom Slayer**.
 
@@ -1610,7 +1610,7 @@ Jake e Nate discutiam a diferença entre o *Gipsy Danger* original e o *Avenger*
 
 Foi então que o silêncio do hangar foi rompido por um som pesado de passos e o ranger metálico da **Armadura Praetor**.
 
-### **💀 O Chamado do Caçador**
+### ** O Chamado do Caçador**
 
 O **Doom Slayer** entrou no hangar. O volume de sua presença era imediato. Ele não usava palavras, mas emanava autoridade absoluta. Todos os pilotos, mesmo Jake, ficaram em atenção.
 
@@ -1640,9 +1640,9 @@ O Slayer se virou, esperando que os cadetes o seguissem.
 
 Os pilotos, agora pálidos, perceberam que o "treinamento" seria algo muito mais próximo da tortura do que de uma simulação de combate. O legado de fúria e disciplina estava prestes a ser transmitido à próxima geração.
 
-## **Cap 4🩸 O Peso da Imortalidade e o Despertar da Ameaça**
+## **Cap 4 O Peso da Imortalidade e o Despertar da Ameaça**
 
-### **💀 A Garantia do Curador**
+### ** A Garantia do Curador**
 
 Jake Pentecost estava prestes a abrir a boca e reclamar sobre "disciplina Espartana" e a violação de protocolos de treinamento da PPDC. Nate Lambert já estava tenso, e Amara parecia tanto aterrorizada quanto curiosa.
 
@@ -1658,7 +1658,7 @@ Silêncio. A perspectiva de Kratos, somada à garantia de cura instantânea de u
 
 ---
 
-### **🚨 O Ataque Inesperado: Obsidian Fury**
+### ** O Ataque Inesperado: Obsidian Fury**
 
 Enquanto os gritos abafados do primeiro exercício de Kratos começavam a ecoar de uma instalação de treinamento subterrânea, o Centro de Comando no Baluarte entrou em colapso.
 
@@ -1672,7 +1672,7 @@ Um novo Jaeger, escuro como a noite e adornado com lâminas vermelhas cintilante
 
 > **Marechal Stacker Pentecost:** "Quem estaria pilotando um Jaeger que nunca vimos antes? E por que Sydney?"
 
-### **📡 A Análise da Ameaça**
+### ** A Análise da Ameaça**
 
 O **Doom Slayer**, que havia se afastado um pouco para supervisionar o início do treinamento, voltou imediatamente ao Centro de Comando, sentindo uma perturbação profunda.
 
@@ -1694,7 +1694,7 @@ O Precursor não havia tentado abrir outra Fenda. Ele estava **infiltrando** a p
 
 > **Doom Slayer:** "Não. Deixem as novas máquinas irem. Eles precisam do batismo de fogo contra a verdadeira ameaça. **Eu cuidarei da mente controladora.**"
 
-## **Cap 5🌍 Ameaça Programada e o Chamado dos Guardiões**
+## **Cap 5 Ameaça Programada e o Chamado dos Guardiões**
 
 O **Doom Slayer** observou o feed do *Obsidian Fury* destruindo a base de Sydney, ignorando a sugestão do Marechal de se lançar imediatamente. Ele sabia que a ameaça tinha um padrão, e não era aleatório.
 
@@ -1718,9 +1718,9 @@ Um sorriso frio e metálico parecia surgir por baixo da Armadura Praetor.
 
 A nova geração seria a primeira linha de defesa, mas a velha guarda – os **Cinco Guardiões** – estaria pronta para a luta final.
 
-## **🔍 O Ponto de Encontro e o CEO da Inovação**
+## ** O Ponto de Encontro e o CEO da Inovação**
 
-### **📌 A Estratégia do Fury**
+### ** A Estratégia do Fury**
 
 Enquanto Mako e Raleigh iniciavam a investigação nos arquivos e os Guardiões Imortais eram convocados, um novo *feed* de Sydney chegou ao Centro de Comando.
 
@@ -1740,7 +1740,7 @@ Uma ideia veio à mente do Marechal. Ele olhou para o Slayer, seus olhos se enco
 
 Nenhum dos dois disse nada em voz alta. Precisavam de mais provas para sequer contemplar a traição.
 
-### **💼 O Retorno do CEO**
+### ** O Retorno do CEO**
 
 Nesse momento, as portas do Centro de Comando se abriram. Quem entrou não foi um militar, mas um homem em um terno de corte elegante, sorrindo e carregando uma maleta.
 
@@ -1774,7 +1774,7 @@ A reunião seguiu, com Geiszler apresentando seus modelos de drone. A conversa p
 
 ## **Cap 6 💥 A Fúria Ataca o Ninho e o Código Oculto**
 
-### **🚁 Exibição e Emboscada**
+### ** Exibição e Emboscada**
 
 Após a tensa reunião com o CEO Newton Geiszler, **Mako Mori** chamou **Jake Pentecost** e **Nate Lambert**.
 
@@ -1788,7 +1788,7 @@ Jake e Nate, a bordo do *Gipsy Avenger*, viajaram para o local da exibição. O 
 
 De repente, a segurança do local entrou em colapso.
 
-### **⚠️ O Ataque Cirúrgico**
+### ** O Ataque Cirúrgico**
 
 O **Obsidian Fury** reapareceu, mas desta vez não era uma demonstração. Ele mirou **direto na sede de exibição**, sem se importar com os canhões de defesa perimetral da cidade.
 
@@ -1800,7 +1800,7 @@ O *Avenger* era um Mark-VI, um guerreiro poderoso, mas o *Fury*, com sua velocid
 
 O *Obsidian Fury* ignorou o *Avenger* por um momento, mirando um golpe de energia vermelha em direção à plataforma de onde **Liwen Shao** e sua equipe observavam.
 
-### **📥 A Queda e o Código**
+### ** A Queda e o Código**
 
 Em um esforço desesperado, o *Gipsy Avenger* usou seu impulso para se lançar na frente do golpe, protegendo a plataforma. No processo, o *Avenger* usou sua mão livre para agarrar os destroços do heliponto que caía, salvando **Liwen Shao** de cair no chão. O sacrifício do *Avenger* foi total; ele estava danificado, mas os pilotos conseguiram proteger a CEO.
 
@@ -1808,7 +1808,7 @@ Enquanto o *Obsidian Fury* preparava o golpe final, ele parou abruptamente. Por 
 
 Nesse instante, antes que o *Fury* recuasse para a escuridão do oceano, um pequeno pacote de dados foi transmitido para o Baluarte de Hong Kong.
 
-### **🗺️ A Repreensão e o Mapa**
+### ** A Repreensão e o Mapa**
 
 Jake e Nate voltaram para o Baluarte, exaustos e com seu Jaeger à beira da destruição. Eles foram imediatamente levados ao Centro de Comando.
 
@@ -1838,7 +1838,7 @@ A imagem projetada era estranha: um contorno biológico, mas com coordenadas e r
 
 A peça estava montada. O Precursor havia atraído a PPDC para seu próximo ataque, e Jake Pentecost acabara de se voluntariar para a armadilha.
 
-## **Cap 7🔱 Autorização para a Armadilha**
+## **Cap 7 Autorização para a Armadilha**
 
 O **Doom Slayer** permaneceu de pé ao lado do mapa misterioso. A imagem do contorno biológico, com as coordenadas subaquáticas, parecia um convite. Ele olhou para o **Marechal Stacker Pentecost**, buscando o julgamento final.
 
@@ -1860,9 +1860,9 @@ O Marechal Pentecost respirou fundo.
 
 ---
 
-## **Cap 8❄️ O Confronto no Ártico: O Núcleo do Mal**
+## **Cap 8 O Confronto no Ártico: O Núcleo do Mal**
 
-### **🚀 O Envio e a Abordagem**
+### ** O Envio e a Abordagem**
 
 O **Gipsy Avenger**, com reparos de combate de emergência realizados em tempo recorde (graças à coordenação dos Custodes e dos engenheiros da PPDC), foi lançado para o Círculo Polar Ártico. Jake e Nate estavam no *Drift Neural* reforçado, com Amara Namani acompanhando a missão de Hong Kong, monitorando os sinais de *Scrapper* em um sistema de apoio avançado.
 
@@ -1884,7 +1884,7 @@ O *Obsidian Fury* usou suas **Lâminas de Plasma montadas nos braços** (Plasma 
 
 O *Avenger* usou uma manobra evasiva desesperada, recorrendo ao combate corpo a corpo.
 
-### **🧠 A Descoberta da Verdade**
+### ** A Descoberta da Verdade**
 
 Jake e Nate, forçados ao limite, lembraram-se da promessa de Jake ao Slayer: **"Arrancar o núcleo dele fora."**
 
@@ -1898,15 +1898,15 @@ O Jaeger renegado não era pilotado por um humano. Em seu núcleo, havia um **C�
 
 A verdade era clara: a ameaça não vinha do Anteverse. Ela estava **sendo fabricada na Terra**, com a tecnologia de alguém.
 
-### **⚙️ Consequências**
+### ** Consequências**
 
 O **Obsidian Fury** foi finalmente destruído pelo *Gipsy Avenger*, mas a revelação do cérebro Kaiju confirmou o pior medo do Slayer: o Precursor havia encontrado uma maneira de ignorar a Fenda e atacar a humanidade por dentro.
 
 Jake e Nate, agora de posse das poderosas Lâminas de Plasma do *Fury* (que foram anexadas ao *Avenger*), retornaram a Hong Kong com a prova irrefutável de que o inimigo havia infiltrado a **Shao Industries**, de Newton Geiszler. 
 
-## **Cap 9🔬 A Prova da Traição e o Silêncio da Fenda**
+## **Cap 9 A Prova da Traição e o Silêncio da Fenda**
 
-### **🧬 A Análise do Monstro de Metal**
+### ** A Análise do Monstro de Metal**
 
 O **Obsidian Fury**, agora apenas uma carcaça mutilada com um cérebro Kaiju exposto no núcleo, foi transportado para o laboratório de análise do Baluarte.
 
@@ -1916,7 +1916,7 @@ O **Obsidian Fury**, agora apenas uma carcaça mutilada com um cérebro Kaiju ex
 
 > **Mako Mori:** "Então a ameaça veio de dentro, de alguém que tinha acesso à tecnologia PPDC e conhecimento genético de Kaiju."
 
-### **⏳ A Calmaria Anormal**
+### ** A Calmaria Anormal**
 
 O **Doom Slayer** observava o trabalho de Gottlieb, sua fúria contida, mas palpable. Ele não estava preocupado com o *Fury*; estava preocupado com o **silêncio**.
 
@@ -1934,9 +1934,9 @@ O Slayer se virou, encarando a equipe de comando.
 
 A confirmação da traição e a ausência de uma invasão maciça apontavam inequivocamente para uma fonte: a pessoa que dominava a tecnologia de drones, que tinha o conhecimento de *Drift* neural, e que havia tido acesso constante ao Baluarte.
 
-## **Cap 10🕵️ A Infiltração dos Cadetes e a Pista Final**
+## **Cap 10 A Infiltração dos Cadetes e a Pista Final**
 
-### **🛠️ A Invasão Clandestina**
+### ** A Invasão Clandestina**
 
 Antes que o **Dr. Hermann Gottlieb** pudesse se deslocar para Tóquio ou antes que o **Dr. Newton Geiszler** pudesse ser confrontado abertamente, a nova geração decidiu agir por conta própria.
 
@@ -1952,7 +1952,7 @@ Em pouco tempo, eles encontraram a pista.
 
 > **Amara Namani:** "Aqui está\! As peças do sistema de acionamento neural e os módulos de camuflagem... **Vieram da Shao Industries\!** E o registro de fornecedor principal é um único nome: **Newton Geiszler**."
 
-### **🚨 O Confronto no Hangar**
+### ** O Confronto no Hangar**
 
 A alegria da descoberta durou pouco. A segurança do hangar, alertada pelo movimento não autorizado, cercou os cadetes.
 
@@ -1968,7 +1968,7 @@ O Marechal Pentecost hesitou. A prova técnica de Amara, somada às suspeitas do
 
 > **Amara Namani:** "E tem mais\! Dentro do núcleo do *Fury*, encontramos **cabos de comunicação** que levam ao sistema de drones da Shao Industries\! Ele não estava apenas construindo drones. Ele estava **preparando a rede de ataque**."
 
-### **🎯 A Missão de Gottlieb**
+### ** A Missão de Gottlieb**
 
 O **Doom Slayer** processou as palavras de Amara. O Precursor estava em Nova York (onde Geiszler estava sediado) e estava prestes a lançar o ataque final.
 
@@ -1982,9 +1982,9 @@ O Slayer se virou para o **Dr. Hermann Gottlieb**, que ouvia em choque.
 
 O Marechal Pentecost acenou em concordância. A batalha não seria apenas de Jaegers, mas de mentes.
 
-## **Cap 11🚨 O Caos dos Drones e a Invasão Inevitável**
+## **Cap 11 O Caos dos Drones e a Invasão Inevitável**
 
-### **📦 Drones em Posição**
+### ** Drones em Posição**
 
 No Baluarte de Hong Kong, o **Doom Slayer** havia antecipado o uso dos Drones. Mesmo que **Newton Geiszler** tivesse deixado a base após a reunião, seus Drones recém-entregues permaneciam no hangar de carga.
 
@@ -1992,7 +1992,7 @@ No Baluarte de Hong Kong, o **Doom Slayer** havia antecipado o uso dos Drones. M
 
 Os pilotos dos **Cinco Guardiões Imortais** – Raleigh e Mako no *Gipsy Danger*, os Hansen no *Striker Eureka*, e os Kaidanovsky no *Cherno Alpha* e *Crimson Typhoon* – ativaram seus Jaegers e moveram-se para as áreas de lançamento, preparados para a batalha que sabiam ser iminente.
 
-### **🤯 A Confrontação e a Traição**
+### ** A Confrontação e a Traição**
 
 Enquanto isso, o **Dr. Hermann Gottlieb**, determinado a provar a inocência de seu amigo, correu para a sede da **Shao Industries**, convencido de que a CEO, **Liwen Shao**, era a verdadeira traidora que havia explorado o conhecimento de Newt.
 
@@ -2008,7 +2008,7 @@ Mas o verdadeiro culpado estava mais perto. **Newton Geiszler** estava sentado n
 
 Gottlieb congelou de horror. Aquele não era Newt. Era o **Precursor**, falando através da mente contaminada de seu amigo.
 
-### **💥 O Lançamento Coordenado**
+### ** O Lançamento Coordenado**
 
 Com a traição revelada, o Precursor em Newt agiu.
 
@@ -2032,9 +2032,9 @@ A sirene de alerta máxima explodiu no Baluarte de Hong Kong. A invasão maciça
 
 O *DEUS IRAE* foi o primeiro a ser lançado, seguido pelo **Gipsy Danger**, **Striker Eureka**, **Cherno Alpha** e **Crimson Typhoon**. A nova geração (*Gipsy Avenger*, *Saber Athena*, *Guardian Bravo*, *Titan Redeemer*) foi lançada em seguida, correndo para enfrentar a avalanche de ameaças. A guerra final pela Terra havia começado.
 
-## **Cap 12⚔️ O Contra-Ataque e o Alerta Global**
+## **Cap 12 O Contra-Ataque e o Alerta Global**
 
-### **🛡️ Defesa do Baluarte**
+### ** Defesa do Baluarte**
 
 A antecipação do **Doom Slayer** provou ser a salvação de Hong Kong. Os Drones da Shao Industries que haviam sido entregues no Baluarte ativaram-se sob o comando do Precursor, mas encontraram os **Cinco Guardiões Imortais** em posição.
 
@@ -2043,7 +2043,7 @@ A antecipação do **Doom Slayer** provou ser a salvação de Hong Kong. Os Dron
 
 > **Marechal Stacker Pentecost:** "Os Drones em Hong Kong foram neutralizados\! Excelente trabalho\! Mas o resto do mundo..."
 
-### **🚪 Fechamento Quase Tarde Demais**
+### ** Fechamento Quase Tarde Demais**
 
 Enquanto a batalha ocorria, **Liwen Shao** e o **Dr. Hermann Gottlieb** correram contra o tempo no centro de controle da Shao Industries. Gottlieb, guiado pela fúria de ter sido traído pelo amigo, orientava Shao.
 
@@ -2057,7 +2057,7 @@ No entanto, o sinal veio tarde demais para os três primeiros. **Três Kaijus Ca
 
 > **Tendo Choi:** "Portais fechados\! Mas os três conseguiram passar\! E a má notícia, Marechal, é que eles estão **longe**. Os sensores indicam que eles se dividiram e estão convergindo para Tóquio e Monte Fuji. Estão indo em direção ao Anel de Fogo."
 
-### **📞 O Chamado por Reforços**
+### ** O Chamado por Reforços**
 
 O Precursor havia falhado em sua invasão em massa, mas havia conseguido lançar três poderosas ameaças em locais sensíveis. O silêncio do Slayer foi quebrado pela urgência.
 
@@ -2065,9 +2065,9 @@ O Precursor havia falhado em sua invasão em massa, mas havia conseguido lançar
 
 O **Esquadrão Imortal** e os novos Jaegers se preparavam para o lançamento, mas o Slayer sabia que três Kaijus dispersos de Categoria 4 e 5 exigiam uma mobilização total e desesperada. O foco agora era interceptar os monstros antes que eles se unissem.
 
-## **Cap 13🌋 O Risco de Extinção e a Convocação Global**
+## **Cap 13 O Risco de Extinção e a Convocação Global**
 
-### **🚁 O Perigo da Ajuda**
+### ** O Perigo da Ajuda**
 
 Durante aquela mesma noite, o céu sobre o Baluarte de Hong Kong foi inundado por incontáveis luzes. Helicópteros de transporte, aviões militares e alguns Jaegers menores, enviados por nações que finalmente entenderam a gravidade da ameaça, convergiam para a base.
 
@@ -2110,9 +2110,9 @@ O tempo estava se esgotando. Três Kaijus convergindo para o ponto de ignição.
 
 > **Doom Slayer:** (Sua voz era de puro comando, cortando a tensão) "Não vamos permitir isso. O Marechal e eu dividiremos as forças. O ataque final será em Fuji. Precisamos de uma equipe para a contenção e uma para a aniquilação. **E alguém precisa deter o fantoche humano.**"
 
-## **Cap 14🗺️ O Eixo da Batalha e a Defesa Total**
+## **Cap 14 O Eixo da Batalha e a Defesa Total**
 
-### **🛰️ Localização e Ação Imediata**
+### ** Localização e Ação Imediata**
 
 O **Doom Slayer** ouviu o relatório sobre o plano de terraformação no Monte Fuji e a convergência dos três Kaijus. A resposta militar precisava ser instantânea e globalmente coordenada.
 
@@ -2122,7 +2122,7 @@ A UNSC confirmou o rastreamento através de seus sistemas orbitais, fornecendo a
 
 > **Doom Slayer:** "Ótimo. **Marechal, distribua as forças.** A defesa não será apenas com Jaegers."
 
-### **⚙️ Mobilização Global e Tática**
+### ** Mobilização Global e Tática**
 
 A ordem do Slayer desencadeou uma mobilização de guerra sem precedentes:
 
@@ -2131,7 +2131,7 @@ A ordem do Slayer desencadeou uma mobilização de guerra sem precedentes:
 * **Equipes de Terra:** Todos os times de chão da PPDC, engenheiros e unidades de segurança da Task Force 141 (lideradas por **Ghost** e **Price**) foram aerotransportados para o Monte Fuji para auxiliar na construção das defesas e na evacuação.  
 * **Cidades-Fortaleza:** Em todo o Japão e Coreia, as cidades próximas ao Círculo de Fogo se transformaram em centros de preparação de guerra, com cidadãos mobilizados para a evacuação de emergência.
 
-### **🚀 Deslocamento dos Jaegers**
+### ** Deslocamento dos Jaegers**
 
 Todos os Jaegers, tanto os da nova geração quanto os Imortais, se deslocaram para a região do Japão/Fuji, exceto três unidades de apoio externas que precisaram ficar em prontidão tática em outros pontos do Pacífico.
 
@@ -2141,16 +2141,16 @@ Todos os Jaegers, tanto os da nova geração quanto os Imortais, se deslocaram p
 
 O tabuleiro de xadrez estava montado para a batalha que decidiria o destino do planeta.
 
-## **Cap 15🌋 O Caldeirão de Fuji: O Ponto de Não Retorno**
+## **Cap 15 O Caldeirão de Fuji: O Ponto de Não Retorno**
 
-### **🛡️ A Fortificação do Imperium**
+### ** A Fortificação do Imperium**
 
 O **Baluarte de Hong Kong** não estava sozinho. O chamado do **Doom Slayer** e a confirmação da ameaça Tiranídea (Kaiju) pela UNSC e pelos Custodes levaram o **Império da Humanidade** a uma mobilização total.
 
 * **Monte Fuji** transformou-se em uma instalação militar global. Tanques de guerra, artilharia pesada, baterias de mísseis, e unidades de defesa planetária (com tecnologia Custodes) foram posicionados em anéis concêntricos ao redor da base do vulcão.  
 * **Titans de Guerra:** Atendendo ao chamado, diversas facções de **Titans** (máquinas de guerra gigantes de outros universos que o Slayer havia contatado) se materializaram para reforçar as defesas, juntando-se aos Jaegers. A estratégia era clara: **deixar os Kaijus virem até o Fuji**, concentrando a luta em um único ponto para garantir que eles não tivessem chance de recuar ou espalhar sua contaminação.
 
-### **⚔️ A Formação de Batalha**
+### ** A Formação de Batalha**
 
 A chegada da ajuda aliada permitiu que os Jaegers se posicionassem em uma formação defensiva impecável.
 
@@ -2159,7 +2159,7 @@ A chegada da ajuda aliada permitiu que os Jaegers se posicionassem em uma forma�
   * O **Striker Eureka** e o **Cherno Alpha/Crimson Typhoon** guardavam os flancos.  
   * O **Gipsy Avenger** e os Jaegers cadetes estavam posicionados na linha de apoio e interceptação.
 
-### **💥 A Convergência dos Monstros**
+### ** A Convergência dos Monstros**
 
 A esperada interceptação falhou. Em vez de chegarem separados, os três Kaijus (dois Categoria 4 e um Categoria 5\) demonstraram uma inteligência coordenada, chegando juntos.
 
@@ -2167,7 +2167,7 @@ O alvo não foi o Monte Fuji, mas uma cidade costeira próxima, que foi **destru
 
 > **Marechal Stacker Pentecost:** "Eles estão aqui\! E estão juntos. Todas as unidades, sigam a formação de cunha. O foco é a **contenção**\! Não deixem que eles cheguem ao cume\!"
 
-### **🚁 A Caçada ao Traidor**
+### ** A Caçada ao Traidor**
 
 No meio do caos da preparação para a batalha iminente, a busca por **Newton Geiszler (o Precursor)** continuava. Helicópteros da Task Force 141 (agora reforçados com tecnologia de camuflagem Custodes) vasculhavam a área entre a cidade destruída e o Monte Fuji.
 
@@ -2175,9 +2175,9 @@ No meio do caos da preparação para a batalha iminente, a busca por **Newton Ge
 
 O Precursor estava esperando que os Kaijus eliminassem as defesas. Ele precisava de acesso ao topo do Fuji para emitir o código final de ignição da terraformação.
 
-## **Cap 16🌋 Confronto Épico: O Sacrifício Tático e a Vingança do Slayer**
+## **Cap 16 Confronto Épico: O Sacrifício Tático e a Vingança do Slayer**
 
-### **⚔️ O Inferno da Interceptação**
+### ** O Inferno da Interceptação**
 
 A batalha no sopé do Monte Fuji irrompeu em uma cacofonia de plasma, metal e fúria Kaiju. Os três Kaijus, agindo com uma coordenação estranha e maligna (guiada pela mente do Precursor), atacaram a linha de Jaegers.
 
@@ -2189,7 +2189,7 @@ O **Esquadrão Imortal** e os novos Jaegers foram forçados a lutar em desvantag
 
 O combate foi um teste de resistência. Um por um, os Jaegers de apoio caíam, mas **nenhum sacrifício era em vão**. Cada derrota temporária significava mais tempo para os Autobots fortificarem o cume e para a UNSC consolidar suas defesas. Os Jaegers Imortais, embora sofrendo danos, **conseguiam conter** a ameaça, impedindo que qualquer Kaiju ultrapassasse a linha de defesa.
 
-### **🚁 A Captura do Traidor**
+### ** A Captura do Traidor**
 
 Enquanto os Jaegers lutavam, a caçada ao agente do Precursor se intensificou. Quatro equipes de elite, compostas pela **Task Force: Bastion** (Ghost, Price), **Master Chief** e um esquadrão de **Custodes**, convergiram para o sinal de rádio no sopé do Fuji.
 
@@ -2219,9 +2219,9 @@ O olhar do Slayer, mesmo através do visor vermelho, parecia penetrar a própria
 
 O Slayer havia declarado guerra direta aos mestres dos Kaijus, prometendo a vingança final. Ele voltou imediatamente para o *DEUS IRAE*, preparando-se para o clímax da batalha.
 
-## **Cap 17🔥 Aniquilação no Fuji: A Vitória da Vanguarda**
+## **Cap 17 Aniquilação no Fuji: A Vitória da Vanguarda**
 
-### **💥 O Desmantelamento dos Três**
+### ** O Desmantelamento dos Três**
 
 Com a ameaça do *Precursor* (via Newt Geiszler) neutralizada, a inteligência coordenada dos três Kaijus desmoronou. Os monstros passaram a agir por instinto, mas a linha de defesa da PPDC estava firmemente estabelecida.
 
@@ -2232,7 +2232,7 @@ O **Esquadrão Imortal** e os Jaegers de apoio aproveitaram a confusão dos mons
 
 A batalha foi intensa, mas a experiência combinada de dez anos de vigilância e treinamento do Esquadrão Imortal provou ser a diferença.
 
-### **✅ Vitória Total**
+### ** Vitória Total**
 
 Um por um, os Kaijus caíram.
 
@@ -2245,9 +2245,9 @@ A Terra havia vencido. A ameaça de terraformação do Monte Fuji foi eliminada.
 
 Os Jaegers sobreviventes, danificados, mas vitoriosos, permaneceram de pé sobre os corpos congelados dos monstros.
 
-## **Cap 18🔒 O Prisioneiro e a Promessa Cumprida**
+## **Cap 18 O Prisioneiro e a Promessa Cumprida**
 
-### **⛓️ O Novo Presídio**
+### ** O Novo Presídio**
 
 Após a vitória no Monte Fuji, o **Doom Slayer** retornou imediatamente para o Baluarte de Hong Kong, a bordo do *DEUS IRAE*. A primeira ordem que ele deu não foi sobre reparos ou celebração, mas sobre a segurança máxima do traidor.
 
@@ -2257,13 +2257,13 @@ A prisão, construída sob a supervisão dos Custodes e dos engenheiros da UNSC,
 
 > **Doom Slayer:** "Ele nunca receberá visitas. Nenhuma comunicação. A menos que seja minha ou de **Kratos**. Ele é a nossa ponte. Usaremos a ameaça do Espartano para extrair informações, e eu o usarei para enviar uma mensagem."
 
-### **⚕️ A Recuperação para o Interrogatório**
+### ** A Recuperação para o Interrogatório**
 
 Antes de ser trancado, o corpo de **Newton Geiszler** foi entregue a **Sung Jin-Woo**. O Monarca das Sombras, com sua incomparável habilidade de cura, restaurou o corpo de Newt, removendo qualquer trauma neural ou dano físico causado pela contenção do Precursor.
 
 A cura era essencial, pois o Slayer não precisava de um corpo quebrado, mas de uma mente funcional — e aterrorizada — para seu interrogatório.
 
-### **🔪 O Confronto na Cela**
+### ** O Confronto na Cela**
 
 O **Doom Slayer** foi o primeiro a visitar a cela, a armadura Praetor preenchendo o pequeno espaço com uma aura de ameaça. Newt Geiszler estava sentado, confuso e aterrorizado, sem se lembrar de nada do que havia feito sob o controle do Precursor.
 
@@ -2279,7 +2279,7 @@ O Slayer se inclinou, e sua voz fria e metálica ecoou, enviando a mensagem dire
 
 O Slayer se virou e saiu, deixando Newt na cela escura. A ameaça havia sido entregue: o Caçador estava se preparando para a invasão do Anteverse.
 
-## **Cap 19🌐 Epílogo: O Legado do Caçador e a Nova PPDC**
+## **Cap 19 Epílogo: O Legado do Caçador e a Nova PPDC**
 
 ### **🗻 A Sentinela de Fuji**
 
@@ -2289,7 +2289,7 @@ O *DEUS IRAE* parou ao lado da cúpula, um símbolo de vitória sobre o apocalip
 
 > **Doom Slayer:** (Sua voz no rádio, para si mesmo) "Está feito. O mundo está seguro. Agora, o Anteverse é o alvo."
 
-### **🔄 A Proposta do Caçador**
+### ** A Proposta do Caçador**
 
 De volta a Hong Kong, o Slayer convocou o **Marechal Stacker Pentecost**, **Mako Mori**, **Raleigh Becket** e os líderes da PPDC e das forças aliadas. A vitória no Fuji era apenas o fim de um capítulo, e o Slayer tinha uma nova visão para o futuro.
 
@@ -2305,7 +2305,7 @@ Ele propôs uma reestruturação radical:
 
 > **Doom Slayer:** "**Acho que deveríamos inverter a posição. Deixaremos de ser a caça. E nos tornaremos os caçadores.**"
 
-### **🚀 O Legado de Fúria e a Partida**
+### ** O Legado de Fúria e a Partida**
 
 A PPDC aceitou a proposta do Slayer, reestruturando-se como o **Corpo de Defesa Multiversal (CDM)**, com a missão de caçar ameaças em outras dimensões.
 
@@ -2319,7 +2319,7 @@ A última imagem que a Terra teve do **DEUS IRAE** foi a silhueta colossal avan�
 
 # A Guerra Do Graal
 
-## **📜 Capítulo 1: O Erro do Sistema e o Grito do Graal**
+## ** Capítulo 1: O Erro do Sistema e o Grito do Graal**
 
 **A Garagem de Emiya** A invocação deveria ser um ritual solene. Shirou Emiya preparou o círculo, recitou as palavras e esperava um milagre. O que ele recebeu foi um curto-circuito na realidade.
 
@@ -2339,13 +2339,13 @@ De repente, Saber caiu de joelhos, segurando a cabeça.
 
 **Voz do Graal (Distorcida e em Pânico na mente de Saber):**
 
-> *⚠️ ALERTA DE SISTEMA. INTRUSÃO NÃO-MÁGICA DETECTADA.* *ANALISANDO... FALHA. ORIGEM: DESCONHECIDA. ENERGIA: ARGENT/PRIMORDIAL.* *CLASSIFICAÇÃO DE ESPÍRITO HERÓICO: IMPOSSÍVEL.* *CRIANDO NOVA DESIGNAÇÃO DE CLASSE: DOOM SLAYER.* *NÍVEL DE AMEAÇA: CATACLÍSMICO. POTENCIAL DE RUPTURA DA GUERRA: 100%.* *AVISO AOS SERVOS: EVITEM O CONFRONTO DIRETO. A MORTE É CERTA.*
+> * ALERTA DE SISTEMA. INTRUSÃO NÃO-MÁGICA DETECTADA.* *ANALISANDO... FALHA. ORIGEM: DESCONHECIDA. ENERGIA: ARGENT/PRIMORDIAL.* *CLASSIFICAÇÃO DE ESPÍRITO HERÓICO: IMPOSSÍVEL.* *CRIANDO NOVA DESIGNAÇÃO DE CLASSE: DOOM SLAYER.* *NÍVEL DE AMEAÇA: CATACLÍSMICO. POTENCIAL DE RUPTURA DA GUERRA: 100%.* *AVISO AOS SERVOS: EVITEM O CONFRONTO DIRETO. A MORTE É CERTA.*
 
 **Saber:** (Ofegante, levantando-se com dificuldade) "Mestre... O Graal está... com medo. Ele acabou de criar uma classe. 'Doom Slayer'. Ele diz que há algo neste mundo que não obedece às regras da magia. Algo que pode acabar com a Guerra antes mesmo dela começar."
 
 ---
 
-## **📜 Capítulo 2: A Anomalia do Ferreiro e o Dragão nas Costas**
+## ** Capítulo 2: A Anomalia do Ferreiro e o Dragão nas Costas**
 
 **A Residência Emiya \- Dia Seguinte** Rin Tohsaka e Archer haviam encontrado Shirou e Saber. A aliança foi formada não pela confiança mútua, mas pelo medo compartilhado do ambiente desconhecido.
 
@@ -2379,7 +2379,7 @@ A camisa de Shirou havia rasgado. Em suas costas, brilhando em vermelho sangue, 
 
 ---
 
-## **📜 Capítulo 3: O Gigante na Porta e a Diplomacia do Medo**
+## ** Capítulo 3: O Gigante na Porta e a Diplomacia do Medo**
 
 **Aproximação do Castelo** No alto do Baluarte, o Doom Slayer viu o pico de energia vermelha no monitor.
 
@@ -2413,7 +2413,7 @@ Ele passou por eles e entrou na sala de estar, tirando as botas sujas de óleo d
 
 ---
 
-## **📜 Capítulo 4: Argent, Inferno e a Eternidade**
+## ** Capítulo 4: Argent, Inferno e a Eternidade**
 
 **A Sala de Estar Emiya** A cena era surreal. Rin, Archer, Saber e o novo Shirou estavam sentados em um lado da mesa baixa. Do outro lado, ocupando muito espaço, estava o Doom Slayer, ainda de armadura completa.
 
@@ -2453,7 +2453,7 @@ O Slayer apontou para a marca de Dragão nas costas de Shirou.
 
 ---
 
-## **📜 Capítulo 5: O Pacto da Fortaleza**
+## ** Capítulo 5: O Pacto da Fortaleza**
 
 **A Aliança** A explicação do Slayer deixou um silêncio pesado na sala. A escala de poder dele era absurda. Ele não lutava por desejos ou pelo Graal. Ele lutava porque era o que ele *era*.
 
@@ -2479,7 +2479,7 @@ Com isso, o Slayer saiu, entrou no titã de 160 metros e partiu, deixando os mag
 
 **Rin:** (Caindo no sofá) "Nós vamos trabalhar para ele, não vamos?" **Archer:** "É melhor do que ser alvo dele, Rin. Muito melhor."
 
-## **📜 Capítulo 6: O Aço da Alma e a Lâmina do Inferno**
+## ** Capítulo 6: O Aço da Alma e a Lâmina do Inferno**
 
 ### **⚙️ A Catedral de Metal**
 
@@ -2503,7 +2503,7 @@ Lá estava o **Crisol (The Crucible)**. A lendária espada de energia vermelha, 
 
 **Doom Slayer:** "Ferreiro. Ela sangra energia. Conserte."
 
-### **🔥 Trace On: A Análise Impossível**
+### ** Trace On: A Análise Impossível**
 
 Shirou aproximou-se. O calor que emanava do punho da espada não era físico; era ódio. A arma parecia estar viva e furiosa.
 
@@ -2545,7 +2545,7 @@ Com um grito final, Shirou canalizou o poder de dois Selos de Comando diretament
 
 Os símbolos rúnicos na espada brilharam, aceitando a nova autoridade.
 
-### **🤝 O Respeito do Predador**
+### ** O Respeito do Predador**
 
 Shirou cambaleou para trás, suando profusamente, os martelos se desfazendo em partículas de luz. O Crisol flutuava levemente sobre a mesa, zumbindo com uma perfeição letal.
 
@@ -2575,9 +2575,9 @@ Enquanto o Slayer se afastava, Gottlieb correu até Rin.
 
 Enquanto isso, Shirou olhava para suas mãos. A fusão com Muramasa estava se tornando mais natural. E, pela primeira vez, ele sentiu que tinha encontrado um lugar onde sua obsessão por espadas não era uma maldição, mas uma necessidade absoluta para a sobrevivência do planeta.
 
-## **📜 Capítulo 7: O Novo Voto e o Pacto Argent**
+## ** Capítulo 7: O Novo Voto e o Pacto Argent**
 
-### **☀️ Saber e o Guardião**
+### ** Saber e o Guardião**
 
 A tarde caiu sobre o Shatterdome. No deque de observação da antiga sede da PPDC, **Saber (Artoria Pendragon)** observava o horizonte fortificado. Do seu ponto de vista, ela podia ver a **Lança do Destino** de **Longinus** (a arma que foi reforçada pela tecnologia do Slayer) e o **DEUS IRAE** pairando como o Deus da Guerra.
 
@@ -2591,7 +2591,7 @@ O som de passos pesados ecoou no concreto. O **Doom Slayer** se aproximou, sem s
 
 **Saber:** (Virando-se para o Slayer) "Ele tem a alma de um ferreiro. Sua obstinação, canalizada para a forja, é uma força poderosa. Ele encontrou seu caminho neste novo mundo, Slayer."
 
-### **🌑 A Proposta Irrecusável**
+### ** A Proposta Irrecusável**
 
 O Slayer olhou para ela, e seus olhos gélidos pareciam penetrar sua alma de Espírito Heróico.
 
@@ -2623,7 +2623,7 @@ Ele olhou para Saber.
 
 **Doom Slayer:** "Você se tornará permanente. Livre do Trono dos Heróis. Com o Argent fluindo em você, você teria um corpo físico que transcende o tempo. Sua força será a sua própria, não a do Graal. **Você nunca mais precisará ser invocada, nem desaparecerá ao final da Guerra.**"
 
-### **🛡️ O Fim da Guerra Pessoal**
+### ** O Fim da Guerra Pessoal**
 
 A oferta era irrecusável. Saber seria livre. Shirou seria o ápice de sua obsessão.
 
@@ -2651,9 +2651,9 @@ O Slayer sorriu de leve, a primeira expressão que eles viram que não era de fo
 
 **Doom Slayer:** "Preparem-se. Amanhã, a Forja não será de metal, mas de *alma*."
 
-## **📜 Capítulo 8: Cavaleiros da Noite e a Fúria Reforçada**
+## ** Capítulo 8: Cavaleiros da Noite e a Fúria Reforçada**
 
-### **🔥 A Forja da Alma**
+### ** A Forja da Alma**
 
 A transformação não foi um ritual mágico suave; foi uma tortura industrial. O local escolhido foi a câmara de fusão do **DEUS IRAE**, um espaço revestido de Argent-Plasma onde o Slayer canalizava a energia.
 
@@ -2670,7 +2670,7 @@ Quando as portas se abriram, eles estavam diferentes.
 
 Eles eram a **Força-Tarefa: Argent**.
 
-### **🧐 Os Céticos na Sala de Guerra**
+### ** Os Céticos na Sala de Guerra**
 
 Duas horas depois, os quatro estavam reunidos na Sala de Guerra, onde Rin e Archer esperavam ansiosamente.
 
