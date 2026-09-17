@@ -27,4 +27,43 @@
 ***No dia seguinte***
 **(sala de aula)**
 
-Elijah
+**Elijah:**
+**"Olha o senhor ficou bem popular, senhor membro do commite diciplinar"**
+
+**Arthur:**
+**"Não fode Elijah, tu acha que eu me importo com fama, eu quero mais é que se foda"**
+
+**Elijah:**
+**"Relexa, Arthur, vc vai iria acabar chamando atenção uma hora ou outra fazendo parte da baluarte, alem disso porque caralhos vc está com essa arma no braço direito"**
+
+**Arthur:**
+**"Só agora percebeu que era uma arma, falando nisso cade o professor" Pesando:" nossa que legal um conjurador, bom ele é um cojurador e consegue esconder bem a presença, só que não vai funcionar comigo "**
+
+**Professor Avius:**
+**"Agora que tenho a atenção de todos, me permitam dar as boas vindas para todos para a materia de fundamentos da mana, eu sou o professor Avius"**
+
+**Professor Avius:**
+**"Mesmo imaginado Que Possam Haver Outros Assuntos Que Vcs Estão Focando Sem Parar..., Eu Gostaria De a Atenção de vcs Durante a aula, Mesmo Essa Sendo uma Aula Tecnicamente, Acretito que é Imperativo Para vcs saberem quais assuntos vamos abordar durante o semestre, e para enfatizar isso ,Vou ter a certeza de passar varios projetos e tarefas divertidas durante o nosso percurso, Tendo em vista das mudanças que ocorrem esse ano, Acho que é apropriado discutir o que realmente começou o preconceito que 'conjuradores são melhores que ampliadores"**
+
+**Arthur:**
+**Penasando:"Como eu queria estar sendo torutado agora, que cara mais imbecil, vou passar tarefas divertidas, fala que vai passar tarefa o pronto porra, e pronto agora vai começar o monologo da desgraça"**
+
+**Professor Avius:**
+**"antigamente, quando atingir o núcleo laranja era considerado extremamente difícil, conjuradores tinham uma enorme vantagem contra os ampliadores, fisiologicamente, conjuradores possuem veias de mana muito mais desenvolvidas, que são responsáveis por absorver a mana ambiente e transportá-la para o núcleo, enquanto os ampliadores naturalmente possuem mais canais de mana, que são responsáveis pela distribuição da mana do núcleo para o resto do corpo, por causa do quanto os conjuradores conseguem ser mais eficientes em absorver mana ao seu redor, é muito mais fácil para eles alcançarem níveis maiores no núcleo, mas, à medida que os dois tipos de magos sobem de nível, Essa distinção fica cada vez menor "**
+
+**Arthur:**
+**Pensamento:"olha lá as duas minas conversando no meio dessa explicação chata da porra"**
+
+**Professor Avius:**
+**"Conjuradores, Vão sempre conseguir distruibuir a mana mais facilmente pelo corpo, enquanto apliadores terão melhor controle na manipulação de mana a distancia , então turma me diga... no fim, dois magos um conjurador e um apliador ambos no estagio nucleo de prata, quem teria vantagem"**
+
+**Arthur:**
+**Pensamento:"Será que eu respondo? ah quer saber foda se"**
+
+**Arthur:**
+**"Essa sua resposta professor depende muito de quem treinou, mais as outras habilidades tirando as de ser mago, bom temos um ditado na baluarte, "se vc precisa vc aprende" e esse ditado diz quando a necessidade chega todo mundo tem que se virar com o que tem e nem sempre vai ter tanta mana no ambiente e lugares fechados são um cenario tmb a se considerar"**
+
+**Professor Avius:**
+**"Por mais que eu odeie admitir o Arthur está certo O nucleo nem sempre define o vencedor"**
+
+(aqui basicamente não tem fala nenhuma então foda se vou só pular mesmo)
