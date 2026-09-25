@@ -67,3 +67,149 @@
 **"Por mais que eu odeie admitir o Arthur está certo O nucleo nem sempre define o vencedor"**
 
 (aqui basicamente não tem fala nenhuma então foda se vou só pular mesmo)
+
+**Depois Da Aula**
+
+**Elijah:**
+**"Bom minha proxima aula é por aqui eu vejo no dormitorio Arthur tenta não matar ninguem"**
+
+**Arthur:**
+**"Não fode, Elijah, eu não vou enguiçar ninguem hoje"** 
+
+**Arthur:**
+**Pensando: Essa aula parece ser um pouco mais interessante que as outras ""**
+
+**Kathyln:**
+**"Eu posso me sentar aqui?"**
+
+**Arthur:**
+**Pensando: Mesmo tendo outros lugares? "pode sim"**
+
+**Kathyln:**
+**"Obrigada"**
+
+**Kathyln:**
+**"Fofa" (olha para a slyvie)**
+
+**Feyrith Ivsaar III**
+**"Olha quem temos aqui"**
+
+**Arthur:**
+**Pensando: Se eu pegar uma equação de matematica é melhor do que aturar ele, dá até vontate de passar ele pra frente""**
+
+**Feyrith Ivsaar III**
+**"se não é a princesa Kathyln e meu rival Arthur Lew..."**
+
+**Arthur:**
+**"já para se for falar de rival tentar passar do treinamento do slayer sem quase morrer, quando vc conseguir isso eu deixo vc me chamar de rival"**
+
+**Arthur:**
+**Pensando: porque ele tá se sentado do meu lado tmb""**
+
+**Professor babaca 1: codinome leoncio**
+**"Eu saiba que minha aula seria popular, mas caramba! temos muitos alunos aqui!"**
+
+**Arthur:**
+**Pensando: Pronto o tal bebado folgado tá aqui""**
+
+**leoncio:**
+**"como todos sabem, essa materia é a manipulação pratica de mana, oque significa que vamos fazer coisas bem praticas, e com isso quero dizer por meio de exemplos"**
+
+**leoncio:**
+**"porque que jeito melhor para vc aprender do que fazendo vc mesmo, certo?" Pensando: Tem varias gatinhas aqui... e aquele muleque que me atacou tá aqui tmb otimo vou me aproveitar disso**  
+
+**leoncio:**
+**"e ainda é uma honra poder ensinar para o comite diciplinar "**
+
+**Arthur:**
+**Pensando: Pronto o tal bebado folgado tá querendo morrer""**
+
+**leoncio:**
+**"Mas não devo ser o unico a estar curioso sobre as habilidades do recem formado comite disciplinar podem se gabar, certo? Afinal, eles vão ser responsaveis pela proteção dos estudantes dessa academia"**
+
+**Arthur:**
+**Pensando: quer saber foda se, ele vai morrer hoje "Eu me voluntario"**
+
+**Kathyln e Feyrith:**
+**Pensam a mesma coisa: Perdemos o Leoncio no primeiro dia de aula**
+
+**Arthur:**
+**"Já vou te dizer que não vou pegar leve só porque vc é professor"**
+
+**leoncio:**
+**"E eu digo o mesmo"**
+
+**Arthur:**
+**"Blz então vamos começar Vrak-tok zen-thar valk, kreth zen-thar orvok. Xenthak zor-ul veknar-sha, krel zornak veq-thar voznak kar-vax. Vren-thal kor-eth! "**
+
+**leoncio:**
+**"Mas que porra tá acontecendo aqui, ninguem me disse que tinha alguem que consegue falar outras liguas alem da humana"**
+
+**Arthur:**
+**"Desculpa professor eu esqueci de uma detalhe estamos na escola e eu não quero ter que ser responsavel pela destruição da sala espera tem uma magia que eu consigo resolver esse problema, Kaa-tah vahk'tah shan'karah nashka, koo-tah vahk'tah shan'karah oo-tah. Kree'ka shan'karah koo-tah jhaa'rah, koo-tah gah'rah shan'karah. Kaa-tah ghay'rih shan'karah Yhaa'rah, kree'ka shan'karah tahk'rah oo-tah. Shaa'na'ka koo-tah tahn-koo."**
+
+**Kathyln:**
+**"Arthur eu acho que isso tá indo longe demais vc teleportou a sala inteira para a onde em especifico?"**
+
+**Arthur:**
+**"Ah só para segunda guerra mundial"**
+
+**leoncio:**
+**"E ai professor bora continaur"**
+
+**7 minutos se passar e Leoncio estava no chão e a sala tinha voltado e o arthur estava com a sua hidden blade ficada na carganta de um soldado nazista que ele tinha matado no meio da luta de demonstração**
+
+**leoncio:**
+**(Acorda depois de 3 minutos no chão)"acabou?"**
+
+**Arthur:**
+**"Se Demorou achei que estava morto, e obrigado pelos ensinamentos professor"**
+
+**(Depois de um tempo o arthur já estava indo para sua proxima aula)**
+
+**Arthur:**
+**Pensando: A proxima aula Deve ser bem mais inteiressante, principios basicos dos artefatos , manipular e codificar mana em objetos para usos especificos... to vendo os usos militares para isso e é algo que não existia no meu antigo mundo""**
+
+**Emily:**
+**"Com licença esse lugar está ocupado?"**
+
+**Emily:**
+**"se estiver, posso sentar em outro lugar"**
+
+**Arthur:**
+**"não está, pode se sentar se quiser "**
+
+**Emily:**
+**"obrigada... eu sou emily é um prazer te conhecer..."**
+
+**Arthur:**
+**"c-como é?"**
+
+**Emily:**
+**"a-aaahhh! er-m-me meu nome é emily! e-emliy watsken! eeeh... por favor pode ser meu amigo? quero dizer, prazer em te conhecer! "**
+
+**Arthur:**
+**"Sou o arthur, e vendo que é a primeira vez que nos encontramos , o que acha da gente se conhecer?"**
+
+**Emily comprimenta arthur com a mão**
+
+**Emily:**
+**"ah, desculpa... provavelmente vc está enojado, né?... "**
+
+**Arthur:**
+**"não está tudo bem, afinal (o arthur mostra a mão dele com o sextruplo de calos que ela tem, porconta dos treinos da baluarte) eu tenho calos tmb viu?"**
+
+**Emily:**
+**"ah, uau! vc deve treinar muito!, não é supresa vc estar no cimite disciplinar, eu realmente admiro isso, quanto a mim adoro artefatos, então acabo passando muito tempo com um monte de aparelhos! infelizmente... isso deixa as minhas mãos bem asperas"**
+
+**Arthur:**
+**Sério? Na verdade sinto até inveja por você ter tanta paixão por artefatos, Lutando você só fica melhor em destruir e matar, Mas com artefatos... Quanto melhor vc for, melhor serão as coisas que criar"**
+
+**Emily:**
+**"e-eu nunca pensei assim... mas é impressionante vindo de alguem com doze anos, "**
+
+**Arthur:**
+**""**
+
+**Emily:**
+**""**
