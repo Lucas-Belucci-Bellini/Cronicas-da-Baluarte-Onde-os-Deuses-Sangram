@@ -175,6 +175,102 @@
 **Leôncio:** 
 **"Com a barreira ativada, vamos começar?"**
 
+**Feyrith:** 
+**"O prazer é todo meu!"**
+
+
+**Feyrith:** 
+**"Água, por favor me apoie!"**
+
+
+**Arthur:** 
+**Pensamento: "Uma magia de alta classe que ajusta o território para ser mais vantajoso para o usuário..."**
+
+
+**Arthur:**
+**Pensamento: "Não pensei que o Feyrith saberia uma magia de domínio."**
+
+
+**Feyrith:** "Reúna e cresça,"
+
+
+**Feyrith:**
+**"Tome a forma e vida de uma besta ameaçadora!"**
+
+
+**Feyrith:** 
+**"Serpente de água!"**
+
+
+**Leôncio:** 
+**"Fácil demais!"**
+
+
+**Arthur:** 
+**Pensamento: "Acho que o bebum não é só conversa já que consegue conjurar chamas azuis."**
+
+
+**Leôncio:** 
+**"Se rende?"**
+
+
+**Feyrith:** 
+**"Eu—"**
+
+
+**Feyrith:** 
+**"Eu... desisto."**
+
+
+**Arthur:** 
+**Pensamento:"Ele está tentando inflar o ego humilhando o Feyrith de propósito?"**
+
+**Arthur:**
+**"Você foi bem, Feyrith."**
+
+**Leôncio**: "Que isso seja uma lição para todos vocês. Eu presumi que por ter a vantagem elemental, o Sr. Ivsaar conseguiria se proteger de meu feitiço."
+
+**Leôncio:**
+**"Claramente eu estava errado."**
+
+**Leôncio:** 
+**"Mais alguém do comitê discipli—"**
+
+**Kathyln:**
+**"Eu gostaria de me voluntariar."**
+
+**Feyrith:**
+**"Kath...?"**
+
+**Leôncio:** 
+**"Oho?"**
+
+**Leoncio**
+**(Pensamento): "Tch, não imaginei que a garota iria se voluntariar também."**
+
+**Arthur:**
+**Pensamento: "Kathyln possui afinidade com magia de gelo."**
+
+**Arthur:** 
+**Pensamento: "Ela acabou de presenciar o elemento de fogo do Geist, e mesmo assim..."**
+
+**Feyrith:**
+**"Kathyln! Talvez seja melhor não..."**
+
+**Leoncio:** 
+**"É uma grande honra, Princesa."**
+
+**Leoncio:** 
+**"Independente de qual seja o resultado desta 'demonstração', por favor não se segure."**
+
+**Leôncio:**
+**Pensamento: "Me deixou falando sozinho, né? Não importa!"**
+
+**Leôncio:** 
+**"Vamos continuar!"**
+
+
+
 **Kathyln e Feyrith:**
 **Pensam a mesma coisa: Perdemos o Leoncio no primeiro dia de aula**
 
