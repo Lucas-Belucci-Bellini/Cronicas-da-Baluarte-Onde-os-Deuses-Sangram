@@ -128,52 +128,51 @@
 **"Mas não devo ser o unico a estar curioso sobre as habilidades do recem formado comite disciplinar podem se gabar, certo? Afinal, eles vão ser responsaveis pela proteção dos estudantes dessa academia"**
 
 **Arthur:**
-* **Pensamento:** "Que tipo de idiota cairia em uma provocação tão óbvia des—"
+**Pensamento:** "Que tipo de idiota cairia em uma provocação tão óbvia des—"
 
 
-* **Feyrith:** 
+**Feyrith:** 
 **"Eu me voluntario!"**
 
 **Arthur:**
-* **Pensamento:** 
-**"Acho que esse tipo de idiota."**
+**Pensamento: Acho que esse tipo de idiota.** 
 
 
-* **Feyrith:** 
+**Feyrith:** 
 **"Meu nome é Feyrith Ivsaar III."**
 
 
-* **Feyrith:** 
+**Feyrith:** 
 **"Estou mais que disposto, por parte do comitê disciplinar, cujo membros foram escolhidos pessoalmente pela Diretora Goodsky, a demonstrar nossas habilidades."**
 
 
-* **Leôncio:** 
+**Leôncio:** 
 **Pensamento:Que fácil! É disso que o povo gosta!**
 
-* **Leôncio:** 
+**Leôncio:** 
 **"Feyrith, certo? Desça até a arena!"**
 
 
-* **Feyrith:** 
+**Feyrith:** 
 **"É uma honra receber a sua tutela."**
 
 
-* **Feyrith:** 
+**Feyrith:** 
 **"E pelo fato de que não posso sentir o nível do seu núcleo, assumo que deva estar um pouco acima do meu."**
 
 
-* **Professor Leôncio:** 
+**Professor Leôncio:** 
 **"Mesmo eu sendo um ampliador,"**
 
 
-* **Leôncio:** 
+**Leôncio:** 
 **"Vou usar apenas ataque de longa distância nessa demonstração."**
 
 
-* **Leôncio:** 
+**Leôncio:** 
 **"Dessa forma, mesmo que eu perca, pelo menos vou ter uma desculpa."**
 
-* **Leôncio:** 
+**Leôncio:** 
 **"Com a barreira ativada, vamos começar?"**
 
 **Kathyln e Feyrith:**
