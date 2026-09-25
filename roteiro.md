@@ -128,7 +128,53 @@
 **"Mas não devo ser o unico a estar curioso sobre as habilidades do recem formado comite disciplinar podem se gabar, certo? Afinal, eles vão ser responsaveis pela proteção dos estudantes dessa academia"**
 
 **Arthur:**
-**Pensando: quer saber foda se, ele vai morrer hoje "Eu me voluntario"**
+* **Pensamento:** "Que tipo de idiota cairia em uma provocação tão óbvia des—"
+
+
+* **Feyrith:** 
+**"Eu me voluntario!"**
+
+**Arthur:**
+* **Pensamento:** 
+**"Acho que esse tipo de idiota."**
+
+
+* **Feyrith:** 
+**"Meu nome é Feyrith Ivsaar III."**
+
+
+* **Feyrith:** 
+**"Estou mais que disposto, por parte do comitê disciplinar, cujo membros foram escolhidos pessoalmente pela Diretora Goodsky, a demonstrar nossas habilidades."**
+
+
+* **Leôncio:** 
+**Pensamento:Que fácil! É disso que o povo gosta!**
+
+* **Leôncio:** 
+**"Feyrith, certo? Desça até a arena!"**
+
+
+* **Feyrith:** 
+**"É uma honra receber a sua tutela."**
+
+
+* **Feyrith:** 
+**"E pelo fato de que não posso sentir o nível do seu núcleo, assumo que deva estar um pouco acima do meu."**
+
+
+* **Professor Leôncio:** 
+**"Mesmo eu sendo um ampliador,"**
+
+
+* **Leôncio:** 
+**"Vou usar apenas ataque de longa distância nessa demonstração."**
+
+
+* **Leôncio:** 
+**"Dessa forma, mesmo que eu perca, pelo menos vou ter uma desculpa."**
+
+* **Leôncio:** 
+**"Com a barreira ativada, vamos começar?"**
 
 **Kathyln e Feyrith:**
 **Pensam a mesma coisa: Perdemos o Leoncio no primeiro dia de aula**
@@ -209,7 +255,25 @@
 **"e-eu nunca pensei assim... mas é impressionante vindo de alguem com doze anos, "**
 
 **Arthur:**
-**""**
+**"vc fala como se não tivesse doze tmb"**
 
 **Emily:**
-**""**
+**"é verdade... mesmo que já faça um tempo desde que alguem tenha dito isso, ainda mais depois que criei o artefato de projeção"**
+
+**Arthur:**
+**Pensando: Puta merda, com quantos anos ela tinha quando criou aquilo?"Bem, Devo dizer que é uma honra de estar na presença de um genio como vc"**
+
+**Emily:**
+**"Ah, Para, isso vindo de um Calouro Humano Misterioso Sem antecedentes, que possui uma besta de mana que parece uma raposa e posssui habiliadde suficiente para derrotar e e destruir completamente não só um professor, mas tmb um aventureiro no estagio Prata Intermediário e alem de tudo isso vc aparece na transmissão dentro da sala de operações da baluarte durante o anuncio que da união das raças, não me faça rir"**
+
+**Emily:**
+**"Não fique tão surpreso..., afina, essa é uma academia de magia as noticias se espalham rapido e as fofocas mais rapido ainda"**
+
+**Gideon:**
+**"Saudações, plebeus!" Vocês podem agradecer por ter a honra de ter... O professor Gideon, Como seu professor dessa matéria! (pausa dramatica olhando para o arthur apenas porque o gideon é um filho da puta arrombado que gosta de fazer os amigos passarem vergonha nos lugares) Quuuêêê?! Olha, se não é o Arthur Leywin?! Eu não fazia ideia que você estaria na minha aula!**
+
+**Arthur:**
+**Pensando: Eu juro que vou te matar seu corno**
+
+**Gideon:**
+**"20 anos atrás Fui eu quem inventou..., Três anos depois, Descobri e implementei... Também já mencionei que fui o responsável por...  "**
