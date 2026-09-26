@@ -269,10 +269,78 @@
 **Leôncio:** 
 **"Vamos continuar!"**
 
+**Kathyln:**
+**"Disparar"**
 
+**Leoncio:**
+**"Impressionante! Como esperado da nossa princessa!"**
 
-**Kathyln e Feyrith:**
-**Pensam a mesma coisa: Perdemos o Leoncio no primeiro dia de aula**
+**Kathyln:**
+**"Disparar"**
+
+*(leoncio prepara um feitiço)*
+
+**Arthur:**
+**Pensamento: Não foi esse o feitiço que o lucas usou duirante o exame de rank""**
+
+**Kathyln:**
+**"Estilharçar!"**
+
+**Leoncio:**
+**Pensamento:Garota inteligente quebrando as lanças de gelo para fazer misseis menores! mas isso não funcionará em mim""**
+
+**Kathyln:**
+**"Tornado de gelo!"**
+
+**Feyrith:**
+**"O que ela está fa...?"**
+
+**Arthur:**
+**Pensamento: Droga eu não queria ter que entrervir""**
+
+**Leôncio:**
+**Pensamento: Merda! Ela não está se defendendo?!**
+
+**Feyrith:**
+**"Kathyln!!!"**
+
+(Arthur joga 6 granadas de fumaça e salva Kathyln)
+
+**Leôncio:**
+**Pensamento: Onde ela está?**
+
+**Leôncio:**
+**Pensamento: Onde ela está?**
+
+**Arthur:**
+**"Acredito que esse seu joguinho já foi longe demais, não concorda?"**
+
+**Leôncio:**
+**"Mesmo Admirando sua preocupação pela princesa, foi desnecessario, eu tinha tudo sob controle"**
+
+**Arthur:**
+**"Sob Controle?"**
+
+**Leôncio:**
+**"Com certeza! Acha Mesmo Que eu, um professor desta renomada academia, colocaria meus alunos em perigo, eu estava prestes a cancelar o feitiço antes de atingi-la"**
+
+**Arthur:**
+**Pensando: Filho da Puta mentiroso, É impossivel cancelar aquele feitiço depois de totalmente manisfestado, mas... A kathyln não se feriu. e eu não tenho provas"**
+
+**Arthur:**
+**"Então que seja, nesse caso... (Pensamento: Terei que forçá lo a me enfrentar) permita o tomar o lugar de minha colega nessa demonstração"**
+
+**Leoncio:**
+**"Bem, já que vc insiste, parece que a princesa está cansada de qualquer forma, por favor não me leve a mal princesa, eu nunca te machucaria"**
+
+**Arthur:**
+**"Você Está bem?"**
+
+**Kathyln:**
+**"Sua Assistencia Foi Desnecessaria, mas agredeço mesmo assim"**
+
+**Arthur:**
+**"Agora"**
 
 **Arthur:**
 **"Já vou te dizer que não vou pegar leve só porque vc é professor"**
@@ -281,30 +349,31 @@
 **"E eu digo o mesmo"**
 
 **Arthur:**
-**"Blz então vamos começar Vrak-tok zen-thar valk, kreth zen-thar orvok. Xenthak zor-ul veknar-sha, krel zornak veq-thar voznak kar-vax. Vren-thal kor-eth! "**
+**"Então vamos começar, mas como não quero ter que pagar pela destruição da sala de aula, deixa eu me mostrar um pouco"**
 
-**leoncio:**
-**"Mas que porra tá acontecendo aqui, ninguem me disse que tinha alguem que consegue falar outras liguas alem da humana"**
-
-**Arthur:**
-**"Desculpa professor eu esqueci de uma detalhe estamos na escola e eu não quero ter que ser responsavel pela destruição da sala espera tem uma magia que eu consigo resolver esse problema, Kaa-tah vahk'tah shan'karah nashka, koo-tah vahk'tah shan'karah oo-tah. Kree'ka shan'karah koo-tah jhaa'rah, koo-tah gah'rah shan'karah. Kaa-tah ghay'rih shan'karah Yhaa'rah, kree'ka shan'karah tahk'rah oo-tah. Shaa'na'ka koo-tah tahn-koo."**
-
-**Kathyln:**
-**"Arthur eu acho que isso tá indo longe demais vc teleportou a sala inteira para a onde em especifico?"**
+**Leoncio:**
+**"Como Assim se mostrar um pouco"**
 
 **Arthur:**
-**"Ah só para segunda guerra mundial"**
+**"Zarnok vrenk rathok vextar, krin vech toxar vek tramok. Trelk ozan xer vark, vek dorak zhern vark tarok. For the ghosts of the Great War, zhin torak kresk vrenk. Vek zarnok tolak vrenk."**
 
-**leoncio:**
-**"E ai professor bora continaur"**
+**Leoncio:**
+**"Mas que porra está acontecendo com a sala"**
 
-**7 minutos se passar e Leoncio estava no chão e a sala tinha voltado e o arthur estava com a sua hidden blade ficada na carganta de um soldado nazista que ele tinha matado no meio da luta de demonstração**
+**Kathyln e Feyrith:**
+**Pensam a mesma coisa: Perdemos o Leoncio no primeiro dia de aula**
 
-**leoncio:**
-**(Acorda depois de 3 minutos no chão)"acabou?"**
+**Kathyln**
+**"Arthur onde agente tá?"**
 
 **Arthur:**
-**"Se Demorou achei que estava morto, e obrigado pelos ensinamentos professor"**
+**"Em outro mundo por assim dizer, só que em uma guerra e acho melhor agente dar um apoio para nossos aliados, Slayer na escuta"**
+
+**Slayer:**
+**"onde vc está arthur, Perdemos o seu sinal no radar 
+
+**Arthur"**
+**"estou em outro mundo consegue me enviar uma força de ataque por meio dos portais tem uma guerra"**
 
 **(Depois de um tempo o arthur já estava indo para sua proxima aula)**
 
