@@ -355,7 +355,30 @@
 **"Como Assim se mostrar um pouco"**
 
 **Arthur:**
-**"Zarnok vrenk rathok vextar, krin vech toxar vek tramok. Trelk ozan xer vark, vek dorak zhern vark tarok. For the ghosts of the Great War, zhin torak kresk vrenk. Vek zarnok tolak vrenk."**
+**"Zarnok vrenk rathok vextar, krin vech toxar vek tramok. Trelk ozan xer vark, vek dorak zhern vark tarok. For the ghosts of the Great War, zhin torak kresk vrenk. Vek zarnok tolak vrenk."** (oque sigifica(Onde o mundo abandonou sua compaixão, nós resolveremos nossos pecados. Que o aço seja nosso juiz e a terra morta o nosso palco. Pelos fantasmas da grande guerra, eu fecho as cortinas da realidade. Bem-vindo às trincheiras))
+
+<!-- 
+    Nome do Feitiço: Domínio de Aço: O Front Esquecido
+Classificação: Expansão Espacial de Isolamento (Dimensão de Bolso)
+
+O Efeito
+Uma magia de contenção e reescrita de cenário. Ao ser ativado, o feitiço "sequestra" o conjurador, seus oponentes e aliados para uma dimensão de bolso isolada do mundo real. O ambiente inteiro se transforma em uma zona de guerra europeia devastada da década de 1940: um cenário de trincheiras cavadas na lama, arame farpado, ruínas de edifícios bombardeados, chuva fina constante e carcaças de tanques fumegantes.
+
+O mundo real fica completamente protegido. Nenhum civil, animal ou prédio da realidade sofre qualquer arranhão. O feitiço dura exatamente 30 minutos cronometrados (marcados por um relógio de bolso fantasmagórico que aparece flutuando acima do campo). Se o tempo acabar ou o conjurador desfizer a magia, todos são ejetados de volta para o mundo real exatamente no estado em que terminaram a luta, enquanto o ambiente original permanece intocado.
+
+O Ritual de Ativação
+
+O Gesto (Componente Somático):
+O mago tira do bolso uma velha cápsula de bala de fuzil de latão deflagrada (ou um isqueiro de trincheira antigo). Ele a deixa cair no chão. Assim que o metal toca a superfície, em vez de quicar, ele afunda como se o chão fosse água, gerando uma onda de choque silenciosa de fumaça densa, neblina e cheiro de pólvora que varre a área em um raio de quilômetros, delimitando a zona que será transportada.
+
+O Encantamento (As Palavras de Poder):
+O conjurador fala em um tom baixo, quase como um lamento militar, mas a voz ecoa por toda a neblina, abafando os sons da cidade ao redor:
+
+"Onde o mundo abandonou sua compaixão, nós resolveremos nossos pecados. Que o aço seja nosso juiz e a terra morta o nosso palco. Pelos fantasmas da grande guerra, eu fecho as cortinas da realidade. Bem-vindo às trincheiras."
+
+O Gatilho:
+O mago bate a sola da bota violentamente contra o chão. Imediatamente, o som estridente e apavorante de uma sirene de ataque aéreo rasga o silêncio. O céu real instantaneamente escurece, substituído por um teto de nuvens cinzentas e pesadas. Ao fundo da dimensão, ecos de artilharia começam a soar. O combate livre de restrições pode começar.
+ -->
 
 **Leoncio:**
 **"Mas que porra está acontecendo com a sala"**
@@ -370,10 +393,94 @@
 **"Em outro mundo por assim dizer, só que em uma guerra e acho melhor agente dar um apoio para nossos aliados, Slayer na escuta"**
 
 **Slayer:**
-**"onde vc está arthur, Perdemos o seu sinal no radar 
+**"onde vc está arthur, Perdemos o seu sinal no radar**
 
 **Arthur"**
-**"estou em outro mundo consegue me enviar uma força de ataque por meio dos portais tem uma guerra"**
+**"estou em outro mundo consegue me enviar uma força de ataque por meio dos portais tem uma guerra, acho que 250 mil tropas está mais que o sufiente isso enclui o blidados, transportes , carros vc sabe o sufiente para montar uma base aqui para ficar recebendo coisas do QG na terra oca"**
+
+**Slayer:**
+**"Blz mandando"**
+
+**Arthur:**
+**"Pronto, vamos continuar professor"**
+
+**Leoncio:**
+**"Espero que vc possa aguentar isso (o leoncio começa a preparar um feitiço para atacar o arthur)"**
+
+**Arthur:**
+**"já que vc está levando isso a serio eu tmb vou levar um pouco, Klarum vektraz of zynthar, kri'la vek nultra sha'rax elen. Voz thal krezok vek zynthar joltak vek trin'la. Vek zyn sha'tak. Vek zyn ha'trax"**(oque siginfica(Da fornalha do abismo, onde a luz morre e a esperança gela. Que o peso das sombras se torne a lâmina do meu julgamento. Não haverá fuga. Não haverá misericórdia))
+
+<!-- 
+    Como sua frase cortou no final, vou completar a ideia: um feitiço que faça lanças de dark steel (aço negro) aparecerem e choverem sobre os inimigos, prendendo-os ao chão enquanto drenam suas forças.
+
+Nome do Feitiço: Veredito do Aço Negro (Dark Steel Phalanx)
+Classificação: Magia Ofensiva de Conjuração Metálica / Controle de Multidão
+
+O Efeito
+O ar ao redor do conjurador cai drasticamente de temperatura e dezenas (ou centenas, dependendo do poder empregado) de fendas de sombra se abrem no espaço. Delas, emergem lanças gigantescas forjadas em Dark Steel — um metal mágico e denso que absorve a luz ao seu redor, parecendo recortes de puro vazio.
+
+Quando disparadas, as lanças voam em velocidade hipersônica, rasgando o ar com um assobio agudo. Ao atingirem o alvo ou o chão, elas não apenas perfuram, mas o metal reage: gavinhas escuras de aço disparam das hastes, aprisionando o inimigo no lugar e sugando lentamente sua energia mágica e força vital, impedindo qualquer tentativa de fuga ou teletransporte.
+
+O Ritual de Ativação
+
+O Gesto (Componente Somático):
+O mago levanta um braço, espalmando a mão para o céu, e o céu (ou o teto do local) começa a gotejar um líquido escuro e denso, semelhante a metal derretido. O conjurador então fecha a mão lentamente, e as gotas congelam no ar, moldando-se e alongando-se violentamente até assumirem a forma perfeita de lanças de três metros de comprimento, todas flutuando e apontadas na direção do inimigo.
+
+O Encantamento (As Palavras de Poder):
+Com os olhos brilhando em um tom frio e sombrio, o mago profere as palavras que fazem as armas vibrarem em ressonância:
+
+"Da fornalha do abismo, onde a luz morre e a esperança gela. Que o peso das sombras se torne a lâmina do meu julgamento. Não haverá fuga. Não haverá misericórdia."
+
+O Gatilho:
+O conjurador abaixa o braço abruptamente e estala os dedos, ou aponta o dedo indicador diretamente para o alvo sussurrando uma única palavra de comando: "Perfurem." Imediatamente, as lanças disparam em uníssono, criando uma tempestade de metal negro impossível de ser evadida.
+ -->
+
+**Leoncio:**
+**"Que caralhos de liguanga é essa que vc tá falando, Muleque, vc é humano?"**
+
+**Arthur:**
+**"Oque eu sou ou deixo de ser não diz respeito a vc"**
+
+<!-- 
+    só para deixar claro o arthur teleportou a sala dele inteira para compo de batalha da segunda guerra mundial do nosso mundo a onde era aliados contra nazistas e nessa batalha ele acabaria matando alguns nazistas, os alunos estariam sendo protegidos pelos soldados da baluarte que chegaram no local por meio de portais e montaram uma base avançada
+ -->
+
+**Leoncio:**
+**"Vc tem ideia de que isso é uma guerra?"**
+
+**Arthur:**
+**"Não só tenho mas como tmb sei que se errar eu vou acertar os inimigos"**
+
+**Leoncio:**
+**"como assim errar"**
+
+<!-- 
+
+**Leoncio:**
+**""**
+
+**Arthur:**
+**""**
+
+ -->
+
+**Arthur:**
+**"钻头"**
+
+**Leoncio desvia das lanças**
+
+**Arthur:**
+**"Merda eu errei, mas acertei 25 nazistas"**
+
+**Leoncio:**
+**"Por acaso quer me matar garoto"**
+
+**Arthur:**
+**"Isso aqui é só uma demonstração não é verdade professor"**
+
+<!-- 
+    (钻头 = Zuàntóu que sigifica Perfurem)
+ -->
 
 **(Depois de um tempo o arthur já estava indo para sua proxima aula)**
 
