@@ -482,6 +482,24 @@ O conjurador abaixa o braço abruptamente e estala os dedos, ou aponta o dedo in
     (钻头 = Zuàntóu que sigifica Perfurem)
  -->
 
+**Arthur:**
+**"Vamos continuar"**
+
+<!-- 
+
+    se vc puder criar 20 dialogos da luta fico feliz 
+ 
+ -->
+
+(depois que a luta terminou o leoncio estava no chão e os alunos e a sala tinha voltado ao normal (os alunos estavam um pouco traumatizados porque viram oque é a guerra de verdade pela primeira vez))
+
+**Leoncio começa acordar**
+**Leoncio:**
+**"Acabou voltamos?"**
+
+**Arthur:**
+**"Acordou professor, achei que tinha morrido, bom obrigado pelos ensinamentos"**
+
 **(Depois de um tempo o arthur já estava indo para sua proxima aula)**
 
 **Arthur:**
