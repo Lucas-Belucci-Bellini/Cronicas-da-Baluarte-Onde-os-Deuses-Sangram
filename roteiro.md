@@ -79,9 +79,9 @@
 **Arthur:**
 **Pensando: Essa aula parece ser um pouco mais interessante que as outras ""**
 
+
 **Kathyln:**
 **"Eu posso me sentar aqui?"**
-
 **Arthur:**
 **Pensando: Mesmo tendo outros lugares? "pode sim"**
 
@@ -566,3 +566,13 @@ O conjurador abaixa o braço abruptamente e estala os dedos, ou aponta o dedo in
 
 **Gideon:**
 **"20 anos atrás Fui eu quem inventou..., Três anos depois, Descobri e implementei... Também já mencionei que fui o responsável por...  "**
+
+(um familiar coruja entra na sala)
+
+**Arthur:**
+**"Pronto, agora tem uma coruja no meu ombro "**
+
+(A )
+
+**Arthur:**
+**""**
